@@ -6,7 +6,7 @@ description: >-
   Dành cho người mới tìm hiểu và người yêu thích Kinh Thánh.
 url: https://kinhthanhluoctruyen.com
 baseurl: ""
-logo: /assets/images/logo.png
+logo: /assets/img/logo.png
 email: dathoangnd@gmail.com
 google_site_verification: ""
 
@@ -22,6 +22,11 @@ collections:
     permalink: /:path/
 
 defaults:
+  - scope:
+      path: ""
+    values:
+      image: /assets/img/thumbnail.png
+
   - scope:
       path: ""
       type: bible
