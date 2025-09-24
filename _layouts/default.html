@@ -13,7 +13,7 @@
     {% seo %}
   </head>
   <body class="font-sans text-gray-900 max-w-3xl mx-auto px-4">
-    <div class="py-6 border-b border-gray-200 block sm:flex items-center justify-between">
+    <div class="py-6 border-b border-gray-200 block sm:flex items-center justify-between {% if page.collection == 'bible' %}border-b-0{% endif %}">
       <a href="/">
         <h1 class="text-gray-600 text-3xl font-bold">Kinh Thánh Lược Truyện</h1>
       </a>
