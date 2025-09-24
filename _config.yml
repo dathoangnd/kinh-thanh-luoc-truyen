@@ -1,0 +1,46 @@
+lang: vi
+title: Kinh Thánh Lược Truyện
+tagline: Phiên bản đơn giản, dễ hiểu của Kinh Thánh
+description: >-
+  Phiên bản tóm lược đơn giản, dễ hiểu của Kinh Thánh.
+  Dành cho người mới tìm hiểu và người yêu thích Kinh Thánh.
+url: https://kinhthanhluoctruyen.com
+baseurl: ""
+logo: /assets/images/logo.png
+email: dathoangnd@gmail.com
+google_site_verification: ""
+
+theme: minima
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+  - jekyll-sitemap
+
+collections:
+  bible:
+    output: true
+    permalink: /:path/
+
+defaults:
+  - scope:
+      path: ""
+      type: bible
+    values:
+      layout: reader
+
+feed:
+  collections:
+    bible:
+      path: /bible.xml
+
+exclude:
+  - .sass-cache/
+  - .jekyll-cache/
+  - gemfiles/
+  - Gemfile
+  - Gemfile.lock
+  - node_modules/
+  - vendor/bundle/
+  - vendor/cache/
+  - vendor/gems/
+  - vendor/ruby/

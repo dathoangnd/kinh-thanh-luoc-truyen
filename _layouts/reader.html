@@ -1,0 +1,122 @@
+---
+layout: default
+---
+
+{% for b in site.data.books %}
+  {% if page.url contains b.slug %}
+    {% assign book = b %}
+  {% endif %}
+{% endfor %}
+
+{% for c in site.bible %}
+  {% if c.url == page.url %}
+    {% assign chapter_index = forloop.index %}
+  {% endif %}
+{% endfor %}
+
+{% if chapter_index > 1 %}
+  {% assign prev_index = chapter_index | minus: 2 %}
+  {% assign prev_chapter = site.bible | slice: prev_index, 1 | first %}
+  {% if prev_chapter.url contains book.slug %}
+    {% assign prev_url = prev_chapter.url %}
+  {% endif %}
+{% endif %}
+
+{% assign chapter_size = site.bible | size %}
+{% if chapter_index < chapter_size %}
+  {% assign next_index = chapter_index %}
+  {% assign next_chapter = site.bible | slice: next_index, 1 | first %}
+  {% if next_chapter.url contains book.slug %}
+    {% assign next_url = next_chapter.url %}
+  {% endif %}
+{% endif %}
+
+<nav class="sticky top-0 z-50 bg-blue-50">
+  <div class="p-3 ml-auto flex items-center gap-3">
+    <label for="ktBookSelect" class="sr-only">Chọn sách</label>
+    <select
+      id="ktBookSelect"
+      class="bg-white border rounded-xl p-2 outline-0"
+      aria-label="Chọn sách"
+    >
+      {% for b in site.data.books %}
+        <option
+          value="{{ b.slug }}"
+          {% if b.slug == book.slug %}selected{% endif %}
+        >
+          {{ b.name }}
+        </option>
+      {% endfor %}
+    </select>
+
+    <label for="ktChapterSelect" class="sr-only">Chọn chương</label>
+    <select
+      id="ktChapterSelect"
+      class="bg-white border rounded-xl p-2 outline-0 w-0 grow"
+      aria-label="Chọn chương"
+    >
+      {% assign chapter_counter = 1 %}
+      {% for chapter in site.bible %}
+        {% if chapter.url contains book.slug %}
+          <option
+            value="{{ chapter.url }}"
+            {% if page.url == chapter.url %}selected{% endif %}
+          >
+            {{ chapter_counter }}. {{ chapter.title }}
+          </option>
+
+          {% assign chapter_counter = chapter_counter | plus: 1 %}
+        {% endif %}
+      {% endfor %}
+    </select>
+  </div>
+</nav>
+
+<h1 class="mt-8 text-xl font-semibold">{{ page.title }}</h1>
+
+<article class="mt-4 mb-8 space-y-4">
+  {{ content }}
+</article>
+
+<div class="flex justify-between">
+  {% if prev_url %}
+    <a class="underline text-blue-800" rel="prev" href="{{ prev_url | relative_url }}">← Chương trước</a>
+  {% else %}
+    <span></span>
+  {% endif %}
+
+  {% if next_url %}
+    <a class="underline text-blue-800" rel="next" href="{{ next_url | relative_url }}">Chương sau →</a>
+  {% endif %}
+</div>
+
+<script defer>
+  (function() {
+    localStorage.setItem('ktLastChapterUrl', '{{ page.url }}')
+    
+    const chapters = [
+      {% for c in site.bible %}
+        {
+          url: '{{ c.url }}',
+        }{% unless forloop.last %},{% endunless %}
+      {% endfor %}
+    ]
+
+    const $book = document.getElementById('ktBookSelect')
+    const $chapter = document.getElementById('ktChapterSelect')
+
+    $book.addEventListener('change', function() {
+      const bookSlug = this.value
+      const firstChapter = chapters.find(chapter => chapter.url.includes(`/${bookSlug}/`))
+
+      if (firstChapter) {
+        window.location.href = firstChapter.url
+      }
+    })
+
+    $chapter.addEventListener('change', function() {
+      const chapterUrl = this.value
+      window.location.href = chapterUrl
+    })
+  })()
+</script>

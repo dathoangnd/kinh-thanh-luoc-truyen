@@ -1,0 +1,31 @@
+<!doctype html>
+<html lang="{{ page.lang | default: site.lang }}">
+  <head>
+    <meta charset="utf-8">
+
+    <meta name="viewport" content="width=device-width,initial-scale=1">
+
+    <link rel="icon" type="image/png" href="{{ '/assets/images/logo.png' | relative_url }}">
+    <link rel="shortcut icon" href="{{ '/assets/images/logo.png' | relative_url }}">
+
+    <link rel="stylesheet" href="{{ '/assets/css/main.css' | relative_url }}">
+
+    {% seo %}
+  </head>
+  <body class="font-sans text-gray-900 max-w-3xl mx-auto px-4">
+    <div class="py-6 border-b border-gray-200 block sm:flex items-center justify-between">
+      <a href="/">
+        <h1 class="text-gray-600 text-3xl font-bold">Kinh Thánh Lược Truyện</h1>
+      </a>
+      {% unless page.url == '/' %}
+        <a href="/" class="text-gray-500 underline">Về trang chủ</a>
+      {% endunless %}
+    </div>
+    <main class="py-8">
+      {{ content }}
+    </main>
+    <footer class="py-4 border-t border-gray-200 text-gray-500">
+      © <script>document.write(new Date().getFullYear())</script> - Phiên bản tóm lược đơn giản, dễ hiểu của Kinh Thánh. <a href="mailto:dathoangnd@gmail.com?subject=Về Kinh Thánh Lược Truyện" class="underline">Liên hệ</a>
+    </footer>
+  </body>
+</html>
