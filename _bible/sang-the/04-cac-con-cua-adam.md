@@ -25,6 +25,6 @@ Thiên Chúa phán rằng: "Không đâu, nếu ai giết Cain thì sẽ bị b�
 
 Thiên Chúa đánh dấu trên mình Cain để bảo vệ ông. Cain bèn đi về phía đông Eden và ở tại xứ Nod.
 
-Khi Adam được 130 tuổi, ông sinh thêm một người con trai, đặt tên là Seth. Bà Eve vợ ông nói: "Thiên Chúa đã cho tôi một đứa trẻ khác thay thế cho Abel đã bị Cain giết đi."
+Khi Adam được một trăm ba mươi tuổi, ông sinh thêm một người con trai, đặt tên là Seth. Bà Eve vợ ông nói: "Thiên Chúa đã cho tôi một đứa trẻ khác thay thế cho Abel đã bị Cain giết đi."
 
-Adam còn sống tới 930 tuổi rồi qua đời.
+Adam còn sống tới chín trăm ba mươi tuổi rồi qua đời.

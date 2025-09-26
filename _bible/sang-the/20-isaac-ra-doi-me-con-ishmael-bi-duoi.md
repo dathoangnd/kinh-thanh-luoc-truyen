@@ -3,7 +3,7 @@ title: Isaac ra đời, mẹ con Ishmael bị đuổi
 description: Isaac ra đời theo lời hứa của Thiên Chúa, dẫn đến xung đột giữa Sarah và Hagar. Ishmael cùng mẹ bị đuổi khỏi nhà Abraham, đánh dấu bước ngoặt quan trọng trong lịch sử các dòng dõi.
 ---
 
-Thiên Chúa đoái đến Sarah như Người đã phán. Sarah mang thai và sinh một con trai cho Abraham khi ông đã được 100 tuổi. Abraham đặt tên con trẻ là Isaac. Khi Isaac được tám ngày tuổi, Abraham làm lễ cắt bì cho con, như Thiên Chúa phán dạy.
+Thiên Chúa đoái đến Sarah như Người đã phán. Sarah mang thai và sinh một con trai cho Abraham khi ông đã được một trăm tuổi. Abraham đặt tên con trẻ là Isaac. Khi Isaac được tám ngày tuổi, Abraham làm lễ cắt bì cho con, như Thiên Chúa phán dạy.
 
 Sarah nói: "Thiên Chúa đã làm cho tôi cười, và tất cả những ai biết việc này cũng sẽ cười với tôi. Ai dám nói với Abraham là tôi sẽ có con? Vậy mà tôi lại sinh cho ông một đứa con trai khi ông đã già."
 
@@ -23,4 +23,4 @@ Thiên Chúa ở với đứa trẻ và nó lớn lên. Cậu sống trong sa m�
 
 Ishamel sinh ra mười hai người con trai là Nebaioth, Kedar, Adbeel, Mibsam, Mishma, Dumah, Massa, Hadad, Tema, Jetur, Naphish và Kedemah. Đó là các thủ lĩnh bộ tộc. Dòng dõi họ mở đất từ Havilah tới Shur, gần biên giới phía đông Ai Cập, về hướng Ashur. Và họ thù địch với tất cả các bộ tộc khác.
 
-Ishmael sống đến 137 tuổi rồi qua đời.
+Ishmael sống đến một trăm ba mươi bảy tuổi rồi qua đời.

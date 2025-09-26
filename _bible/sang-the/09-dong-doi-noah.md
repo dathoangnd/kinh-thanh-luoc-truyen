@@ -11,7 +11,7 @@ Khi Noah tỉnh rượu, hay biết việc đứa con nhỏ nhất đã làm. Ô
 
 Ông lại nói: "Đáng ngợi khen Thiên Chúa của Shem. Xin Chúa mở rộng đất của Japheth, cho nó ở cùng lều với Shem. Còn Canaan phải làm tôi tớ chúng."
 
-Sau cơn nước lụt, Noah còn sống thêm 350 năm, thọ 950 tuổi rồi qua đời.
+Sau cơn nước lụt, Noah còn sống thêm ba trăm năm mươi năm, thọ chín trăm năm mươi tuổi rồi qua đời.
 
 Các con trai ông Japheth là Gomer, Magog, Madai, Javan, Tubal, Meshek và Tiras.
 

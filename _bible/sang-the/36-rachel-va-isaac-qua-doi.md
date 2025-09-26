@@ -11,4 +11,4 @@ Bà Rachel qua đời và được chôn cất cạnh con đường đi Ephrath.
 
 Israel tiếp tục đi và dựng trại gần Migdal Eder. Tại đó, con trai cả của ông là Reuben lén lút ăn nằm với vợ lẽ ông là Bilhah. Ông Israel hay biết được việc đó.
 
-Ông Israel trở về thăm cha ông là Isaac tại Mamre, gần Kiriath Arba. Ông Isaac qua đời ở tuổi 180. Hai con ông là Esau và Israel lo việc chôn cất ông.
+Ông Israel trở về thăm cha ông là Isaac tại Mamre, gần Kiriath Arba. Ông Isaac qua đời ở tuổi một trăm tám mươi. Hai con ông là Esau và Israel lo việc chôn cất ông.

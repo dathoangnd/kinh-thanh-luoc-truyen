@@ -3,7 +3,7 @@ title: Giao ước về phép cắt bì
 description: Chương này kể về giao ước của Thiên Chúa với Abraham qua phép cắt bì, đánh dấu sự cam kết giữa Thiên Chúa và dòng dõi Abraham, khẳng định niềm tin và sự vâng phục trong hành trình đức tin.
 ---
 
-Khi Abram được 99 tuổi, Thiên Chúa hiện ra với ông và phán: "Ta là Thiên Chúa toàn năng. Ngươi hãy bước đi trước mặt Ta cách trung tín và trọng vẹn. Ta sẽ lập giao ước giữa ngươi và Ta, và cho dòng dõi ngươi nhiều vô kể."
+Khi Abram được chín mươi chín tuổi, Thiên Chúa hiện ra với ông và phán: "Ta là Thiên Chúa toàn năng. Ngươi hãy bước đi trước mặt Ta cách trung tín và trọn vẹn. Ta sẽ lập giao ước giữa ngươi và Ta, và cho dòng dõi ngươi nhiều vô kể."
 
 Abram sấp mình xuống đất.
 
@@ -13,7 +13,7 @@ Thiên Chúa lại phán: "Phần ngươi, ngươi phải giữ giao ước Ta c
 
 Thiên Chúa nói về bà Sarai: "Còn Sarai vợ ngươi, ngươi đừng gọi là Sarai nữa, nhưng là Sarah. Ta sẽ ban phước cho nàng, và nàng sẽ có một con trai. Nàng sẽ trở thành mẹ của nhiều dân tộc, vua chúa sẽ sinh ra từ nàng."
 
-Abraham sấp mình xuống đất, cười thầm và tự nhủ: "Đàn ông trăm tuổi còn có con sao? Bà Sarah cũng đã 90 tuổi còn có con sao?"
+Abraham sấp mình xuống đất, cười thầm và tự nhủ: "Đàn ông trăm tuổi còn có con sao? Bà Sarah cũng đã chín mươi tuổi còn có con sao?"
 
 Abraham thưa với Thiên Chúa: "Ước chi Ishmael được ơn từ Ngài."
 

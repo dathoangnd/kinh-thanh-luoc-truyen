@@ -3,7 +3,7 @@ title: Sarah qua đời
 description: Sarah, vợ của Abraham, qua đời ở tuổi già sau một cuộc đời đầy biến động và đức tin. Abraham đau buồn, tìm mua mảnh đất để chôn cất Sarah.
 ---
 
-Sarah hưởng thọ được 127 tuổi. Bà qua đời tại Kiriath Arba (về sau gọi là Hebron), thuộc xứ Canaan. Abraham đến chịu tang Sarah và than khóc bà.
+Sarah hưởng thọ được một trăm hai mươi bảy tuổi. Bà qua đời tại Kiriath Arba (về sau gọi là Hebron), thuộc xứ Canaan. Abraham đến chịu tang Sarah và than khóc bà.
 
 Đoạn Abraham đứng dậy và nói với những người Hittites rằng: "Tôi là một ngoại kiều giữa các ông. Xin bán cho tôi một miếng đất để tôi chôn người chết của tôi."
 

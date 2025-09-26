@@ -19,7 +19,7 @@ Thiên Chúa phán: "Phải có đầy cá bơi dưới nước, và chim bay tr
 
 Thiên Chúa phán: "Hãy để đất sinh ra các loài sinh vật: súc vật, bò sát và thú rừng, mỗi loài theo giống riêng của chúng." Và điều đó xảy ra.
 
-Rồi Chúa phán: "Chúng ta hãy tạo nên con người theo hình ảnh của chúng ta, để chúng cai quản mọi loài sinh vật".
+Rồi Chúa phán: "Chúng Ta hãy tạo nên con người theo hình ảnh của Chúng Ta, để chúng cai quản mọi loài sinh vật".
 Bấy giờ, chưa có cây cỏ nào mọc trên đất, vì Thiên Chúa chưa cho mưa xuống. Chỉ có dòng nước ngầm phun lên tưới khắp mặt đất. Thiên Chúa lấy bụi đất nắn nên một người, rồi thổi sinh khí vào lỗ mũi, và người ấy trở thành một sinh linh sống, gọi là Adam.
 
 Thiên Chúa thấy tất cả những gì Ngài đã làm thật tốt đẹp. Đó là ngày thứ sáu.

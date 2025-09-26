@@ -9,7 +9,7 @@ Vua nằm ngủ lại, và chiêm bao lần thứ hai, thấy bảy bông lúa t
 
 Sáng ra, tâm trạng vua sầu não. Pharaoh cho gọi các pháp sư và nhà thông thái của Ai Cập đến, kể cho họ nghe nhưng không ai giải nghĩa được giấc chiêm bao.
 
-Quan hầu rượu bèn tâu với vua: "Hôm nay tôi xin nhắc lại lầm lỗi của tôi. Pharaoh đã nổi giận với bầy tôi mình, nên giam tôi trong ngục cùng với quan làm bánh. Chúng tôi mỗi người có một chiêm bao trong cùng một đêm. Ở cùng chúng tôi có một thanh niên Hebrew, là đầy tớ của viên chỉ huy thị vệ. Chúng tôi kể cho anh ta nghe về giấc chiêm bao, và được giải nghĩa cho từng người. Mọi việc xảy ra đúng như anh ta nói: Tôi được tha, còn ông kia bị xiên vào cọc."
+Quan hầu rượu bèn tâu với vua: "Hôm nay tôi xin nhắc lại lầm lỗi của tôi. Pharaoh đã nổi giận với bầy tôi mình, nên giam tôi trong ngục cùng với quan làm bánh. Chúng tôi mỗi người có một chiêm bao trong cùng một đêm. Ở cùng chúng tôi có một thanh niên Hebrew, là đầy tớ của viên chỉ huy thị vệ. Chúng tôi kể cho người ấy nghe về giấc chiêm bao, và được giải nghĩa cho từng người. Mọi việc xảy ra đúng như người ấy nói: Tôi được tha, còn ông kia bị xiên vào cọc."
 
 Pharaoh bèn cho đòi Joseph, và cậu được đưa ra khỏi ngục. Sau khi cạo râu và thay quần áo, cậu diện kiến Pharaoh.
 

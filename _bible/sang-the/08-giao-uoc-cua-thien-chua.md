@@ -11,7 +11,7 @@ Bốn mươi ngày sau, Noah mở cửa sổ trên tàu và thả ra một con q
 
 Qua bảy ngày, Noah lại thả bồ câu ra. Đến chiều, bồ câu trở về với ông, và trong mỏ tha một lá ô liu tươi. Noah biết rằng nước đã rút khỏi mặt đất. Ông đợi thêm bảy ngày và thả bồ câu thêm lần nữa. Nhưng lần này, nó không trở về với ông.
 
-Ngày đầu tiên của năm thứ 601 đời Noah, ông dỡ mái che tàu và thấy nước đã khô trên mặt đất. Đến ngày hai mươi bảy tháng hai, mặt đất đã khô hoàn toàn.
+Ngày đầu tiên của năm thứ sáu trăm lẻ một đời Noah, ông dỡ mái che tàu và thấy nước đã khô trên mặt đất. Đến ngày hai mươi bảy tháng hai, mặt đất đã khô hoàn toàn.
 
 Thiên Chúa phán với Noah: "Các ngươi hãy ra khỏi tàu. Hãy mang các loài vật ở cùng ngươi để chúng sinh sôi trên mặt đất."
 

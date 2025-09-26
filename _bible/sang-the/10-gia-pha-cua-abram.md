@@ -3,7 +3,7 @@ title: Gia phả của Abram
 description: Gia phả của Abram, hành trình di cư của gia đình Abram từ Ur đến Harran, và những câu chuyện về các thành viên trong gia phả theo Kinh Thánh.
 ---
 
-Hai năm sau cơn nước lụt, Shem được 100 tuổi và sinh Arphaxad. Shem còn sống thêm 500 năm nữa rồi qua đời.
+Hai năm sau cơn nước lụt, Shem được một trăm tuổi và sinh Arphaxad. Shem còn sống thêm năm trăm năm nữa rồi qua đời.
 
 Này là dòng dõi của Arphaxad.
 
@@ -19,4 +19,4 @@ Abram lấy vợ là Sarai. Sarai hiếm muộn và họ không có con.
 
 Ông Terah đưa hai vợ chồng Abram và cháu là Lot di cư từ thành Ur để đi Canaan. Nhưng khi tới Harran, họ dừng lại và định cư tại đó.
 
-Ông Terah sống được 205 tuổi, rồi qua đời tại Harran.
+Ông Terah sống được hai trăm lẻ năm tuổi, rồi qua đời tại Harran.
