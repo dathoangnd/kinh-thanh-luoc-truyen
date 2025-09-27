@@ -11,7 +11,7 @@ Nhưng trong cơn chiêm bao ban đêm, Thiên Chúa hiện đến cùng vua Abi
 
 Bấy giờ vua Abimelek chưa tới gần bà Sarah, nên thưa rằng: "Lạy Chúa, Ngài sẽ hủy diệt cả dân vô tội sao? Chính họ nói họ là hai anh em. Con đã làm điều này với lòng ngay thẳng và bàn tay trong sạch."
 
-Thiên Chúa phán: "Ta cũng biết ngươi vì lòng ngay thẳng mà làm việc đó, nên Ta đã không cho ngươi đụng đến nàng để lỗi phạm cùng Ta. Bây giờ hãy trả lại vợ người đó, vì ông ấy là một nhà tiên tri, sẽ cầu nguyện cho ngươi và ngươi sẽ được sống. Bằng không, ngươi và tất cả những ai thuộc về ngươi sẽ chết."
+Thiên Chúa phán: "Ta cũng biết ngươi vì lòng ngay thẳng mà làm việc đó, nên Ta đã không cho ngươi đụng đến nàng để lỗi phạm cùng Ta. Bây giờ hãy trả lại vợ người đó, vì ông ấy là một ngôn sứ, sẽ cầu nguyện cho ngươi và ngươi sẽ được sống. Bằng không, ngươi và tất cả những ai thuộc về ngươi sẽ chết."
 
 Vua Abimelek dậy sớm và triệu tập triều thần. Khi vua kể cho họ nghe, họ lấy làm sợ hãi. Vợ vua, cùng các nữ đầy tớ từ đó cũng trở nên hiếm muộn và không thể có con.
 
@@ -35,4 +35,4 @@ Abraham bắt bảy con chiên non dâng vua Abimelek. Ông nói: "Xin vua hãy 
 
 Nơi đó về sau được gọi là Beersheba, nghĩa là giếng của lời thề, vì hai người đã thề tại đó.
 
-Sau khi kết ước, vua Abimelek và quan tổng binh Phicol trở về đất Philistines. Abraham trồng một cây liễu tây tại Beersheba, và kêu cầu danh Thiên Chúa. Abraham sống trong xứ đó trong một thời gian dài.
+Sau khi kết ước, vua Abimelek và quan tổng binh Phicol trở về đất Philistine. Abraham trồng một cây liễu tây tại Beersheba, và kêu cầu danh Thiên Chúa. Abraham sống trong xứ đó trong một thời gian dài.

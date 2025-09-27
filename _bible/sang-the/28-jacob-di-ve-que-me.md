@@ -7,11 +7,11 @@ Esau trở nên thù ghét Jacob vì lời chúc phúc của cha cho cậu. Cậ
 
 Khi Rebekah hay biết việc đó, bà gọi Jacob mà nói: "Anh con Esau đang tính giết con để báo thù. Vậy con ơi, hãy đến nhà anh của mẹ là bác Laban ở Harran. Con hãy ở với bác một thời gian cho tới khi anh con nguôi giận. Khi nào anh con quên đi chuyện này thì mẹ sẽ báo để con về. Có lẽ nào mẹ mất cả hai con trong một ngày ư?"
 
-Lúc bấy giờ, Esau đã cưới hai người vợ Hittites là Judith và Adah. Ông Isaac và bà Rebekah vốn không ưa gì điều đó. Bà Rebekah bèn nói với ông Isaac: "Tôi đã chán sống vì mấy đứa con gái Hittites. Nếu Jacob lấy một đứa Hittites nữa thì tôi còn sống làm gì."
+Lúc bấy giờ, Esau đã cưới hai người vợ Hittite là Judith và Adah. Ông Isaac và bà Rebekah vốn không ưa gì điều đó. Bà Rebekah bèn nói với ông Isaac: "Tôi đã chán sống vì mấy đứa con gái Hittite. Nếu Jacob lấy một đứa Hittite nữa thì tôi còn sống làm gì."
 
 Ông Isaac gọi Jacob, chúc phước cho cậu và dặn rằng: "Con chớ lấy một người vợ nào trong xứ Canaan. Hãy đi về Paddan Aram, tới nhà ông ngoại con là Bethuel và lấy một người vợ trong số con gái của bác con Laban. Xin Thiên Chúa chúc phước cho con, cho con sinh sôi thêm nhiều thành một dân lớn. Xin Ngài cho con và dòng dõi con phúc lành của ông Abraham, cho con chiếm lấy xứ mà con đang kiều ngụ, là xứ mà Ngài đã ban cho ông Abraham."
 
-Ông Isaac tiễn Jacob lên đường đi Paddan Aram. Khi Esau hay biết việc đó thì biết rằng cha mẹ mình không ưa con gái Canaanites, bèn đi đến nhà ông Ishmael anh trai ông Abraham và cưới con gái ông là cô Basemath.
+Ông Isaac tiễn Jacob lên đường đi Paddan Aram. Khi Esau hay biết việc đó thì biết rằng cha mẹ mình không ưa con gái Canaan, bèn đi đến nhà ông Ishmael anh trai ông Abraham và cưới con gái ông là cô Basemath.
 
 Jacob rời Beersheba để đi tới thành Harran. Tới chỗ kia, mặt trời đã lặn, cậu dừng chân nghỉ qua đêm. Cậu lấy một hòn đá gối đầu và ngủ tại đó. Cậu chiêm bao thấy một cái thang từ dưới đất bắc lên tới trời, có các thiên sứ lên xuống thang đó.
 

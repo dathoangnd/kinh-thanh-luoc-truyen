@@ -31,11 +31,11 @@ Khi Joseph thấy cha đặt tay phải lên đầu Ephraim thì tỏ vẻ khôn
 
 Ông Israel nói với Joseph: "Thiên Chúa toàn năng đã hiện ra với cha tại Luz trong xứ Canaan, và chúc phúc cho cha sinh sản thêm nhiều thành một dân, và ban đất đó làm gia nghiệp đời đời cho dòng dõi cha. Vậy bây giờ, hai con trai mà con đã sinh ở Ai Cập là Ephraim và Manasseh sẽ thuộc về cha, giống như Reuben hay Simeon vậy. Còn những đứa con mà con sinh ra sau này sẽ thuộc về con, chúng sẽ thừa hưởng đất nhân danh các anh chúng."
 
-Ông Israel lại nói: "Khi cha từ Paddan về Canaan, thì mẹ con Rachel chết dọc đường, gần Ephrath, và cha đã chôn bà tại đó. Giờ cha sắp chết, nhưng Thiên Chúa sẽ ở với con và đưa con về xứ của tổ phụ con. Này cha cho con thêm một dải đất nhiều hơn các anh em con, là đất mà cha đã dùng cung kiếm đoạt lấy từ dân Amorites."
+Ông Israel lại nói: "Khi cha từ Paddan về Canaan, thì mẹ con Rachel chết dọc đường, gần Ephrath, và cha đã chôn bà tại đó. Giờ cha sắp chết, nhưng Thiên Chúa sẽ ở với con và đưa con về xứ của tổ phụ con. Này cha cho con thêm một dải đất nhiều hơn các anh em con, là đất mà cha đã dùng cung kiếm đoạt lấy từ dân Amorit."
 
 Đoạn, ông Israel cho gọi các con trai khác của ông và chúc phúc cho từng người trong số họ.
 
-Sau cùng, ông Israel nói: "Cha sắp về cùng với tổ phụ. Hãy chôn cha cùng với cha ông cha trong hang đá trong cách đồng Machpelah, cánh đồng mà ông Abraham đã mua của Ephron người Hittites làm mộ địa. Nơi đó đã chôn ông Abraham và vợ ông là bà Sarah, ông Isaac và bà Rebekah, cũng nơi đó cha đã chôn bà Leah."
+Sau cùng, ông Israel nói: "Cha sắp về cùng với tổ phụ. Hãy chôn cha cùng với cha ông cha trong hang đá trong cách đồng Machpelah, cánh đồng mà ông Abraham đã mua của Ephron người Hittite làm mộ địa. Nơi đó đã chôn ông Abraham và vợ ông là bà Sarah, ông Isaac và bà Rebekah, cũng nơi đó cha đã chôn bà Leah."
 
 Khi nói xong, ông Israel để chân lại vào giường, tắt hơi rồi qua đời.
 
@@ -47,6 +47,6 @@ Pharaoh nói với ông: "Cứ đi lên mà chôn cha ngươi như ông đã b�
 
 Vậy Joseph đưa xác cha mình về Canaan để đi chôn. Tất cả triều thần Pharaoh đều đi theo, từ các trường lão trong đền thờ và trong xứ, cùng mọi người trong nhà Joseph, các anh em và họ hàng trong nhà cha mình. Chỉ có lũ trẻ và các đàn vật là còn ở lại Goshen. Nhiều xe và ngựa cũng đi theo. Đó là một đám tang rất lớn.
 
-Khi đến sân đập lúa của Atad, gần sông Jordan, Joseph lại để tang cha trong bảy ngày, và họ khóc rất lớn và thảm thiết. Người Canaanites ở đó nghe tiếng khóc thì bảo nhau đó là lễ khóc than trọng thể của dân Ai Cập. Vì thế nơi đó được gọi là Abel Mizraim, nghĩa là sự than khóc của người Ai Cập.
+Khi đến sân đập lúa của Atad, gần sông Jordan, Joseph lại để tang cha trong bảy ngày, và họ khóc rất lớn và thảm thiết. Người Canaan ở đó nghe tiếng khóc thì bảo nhau đó là lễ khóc than trọng thể của dân Ai Cập. Vì thế nơi đó được gọi là Abel Mizraim, nghĩa là sự than khóc của người Ai Cập.
 
-Các con trai của ông Israel đã làm như lời ông dặn, đưa ông về Canaan và chôn trong hang đá trong cánh đồng Machpelah, mà ông Abraham đã mua lại từ Ephron người Hittites. Sau khi chôn cha, Joseph trở về Ai Cập cùng với anh em và tất cả những người khác đi theo.
+Các con trai của ông Israel đã làm như lời ông dặn, đưa ông về Canaan và chôn trong hang đá trong cánh đồng Machpelah, mà ông Abraham đã mua lại từ Ephron người Hittite. Sau khi chôn cha, Joseph trở về Ai Cập cùng với anh em và tất cả những người khác đi theo.

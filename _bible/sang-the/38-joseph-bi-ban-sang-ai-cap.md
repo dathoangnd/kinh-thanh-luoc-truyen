@@ -33,9 +33,9 @@ Ruben muốn cứu em nên nói: "Đừng giết nó. Cứ ném nó xuống cái
 
 Khi Joseph đến, họ trói cậu lại bằng dây thừng và ném xuống hố. Cái hố đó cạn, không có nước trong đó.
 
-Trong lúc dùng bữa, họ nhìn lên và thấy đoàn người Ishmaelites và Midianites từ Gilead đi đến. Lạc đà của họ chở gia vị, nhũ hương và mộc dược xuống đất Ai Cập.
+Trong lúc dùng bữa, họ nhìn lên và thấy đoàn người Ishmael và Midian từ Gilead đi đến. Lạc đà của họ chở gia vị, nhũ hương và mộc dược xuống đất Ai Cập.
 
-Judah nói với các anh em: "Chúng ta giết nó thì có ích gì? Cứ bán nó cho dân Midianites và đừng ra tay trên nó, vì nó là anh em ruột thịt với chúng ta."
+Judah nói với các anh em: "Chúng ta giết nó thì có ích gì? Cứ bán nó cho dân Midian và đừng ra tay trên nó, vì nó là anh em ruột thịt với chúng ta."
 
 Khi những lái buôn đi ngang, họ kéo Joseph ra khỏi hố rồi bán cho họ với giá hai mươi shekel bạc.
 
@@ -47,4 +47,4 @@ Họ bèn lấy áo choàng của Joseph đã bị xé rách, giết một con d
 
 Ông Israel xé áo mình ra, mặc áo gai và để tang lâu ngày. Các con trai con gái ông đến an ủi nhưng ông không chịu thôi. Ông khóc và nói: "Cha sẽ để tang tới khi cha gặp lại con dưới mồ."
 
-Trong lúc đó, đoàn lái buôn Midianites tới Ai Cập và bán Joseph cho Potiphar, chỉ huy thị vệ của Pharaoh.
+Trong lúc đó, đoàn lái buôn Midian tới Ai Cập và bán Joseph cho Potiphar, chỉ huy thị vệ của Pharaoh.

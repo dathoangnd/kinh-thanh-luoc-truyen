@@ -23,6 +23,6 @@ Mọi người đàn ông ở cổng thành đồng ý, và chịu phép cắt b
 
 Ba ngày sau, khi mọi người còn đang đau đớn, hai con trai ông Israel là Simeon và Levi mang gươm xông vào đánh phá thành, giết tất cả đàn ông. Họ cũng giết cả Hamor và Shechem rồi mang Dinah từ nhà họ đi. Họ cũng cướp đi các bầy chiên, bò, lừa và các sản vật trong thành cũng như ngoài đồng. Của cải, đàn bà, trẻ con trong thành bị mang đi như chiến lợi phẩm.
 
-Israel nói với Simeon và Levi: "Các con đã làm cha trở nên đáng ghét với người Canaanites và Perizzites trong xứ. Chúng ta chỉ có ít người, nếu họ hợp lực đánh, cả nhà chúng ta sẽ bị tàn hại."
+Israel nói với Simeon và Levi: "Các con đã làm cha trở nên đáng ghét với người Canaan và Perizzi trong xứ. Chúng ta chỉ có ít người, nếu họ hợp lực đánh, cả nhà chúng ta sẽ bị tàn hại."
 
 Họ đáp: "Chúng con nỡ nào để hắn đối xử với em gái chúng con như một gái điếm sao?"

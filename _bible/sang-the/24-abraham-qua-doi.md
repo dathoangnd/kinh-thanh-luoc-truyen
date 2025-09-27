@@ -7,6 +7,6 @@ description: Abraham kết thúc cuộc đời sau khi chứng kiến sự thàn
 
 Abraham để lại tất cả tài sản cho Isaac. Còn các con thứ và vợ lẽ thì ông tặng quà rồi đuổi đi nơi khác về phía đông.
 
-Abraham sống tới một trăm bảy mươi lăm tuổi rồi qua đời. Các con ông là Isaac và Ishmael chôn ông bên cạnh mộ bà Sarah vợ ông trong hang đá Machpelah gần Mamre, trong cánh đồng mà ông Abraham mua lại từ người Hittites. 
+Abraham sống tới một trăm bảy mươi lăm tuổi rồi qua đời. Các con ông là Isaac và Ishmael chôn ông bên cạnh mộ bà Sarah vợ ông trong hang đá Machpelah gần Mamre, trong cánh đồng mà ông Abraham mua lại từ người Hittite. 
 
 Sau khi Abraham mất, Thiên Chúa chúc phúc cho con ông là Isaac.

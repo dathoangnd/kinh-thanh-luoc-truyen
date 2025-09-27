@@ -5,7 +5,7 @@ description: Abram dẫn đầu một đội quân nhỏ để giải cứu Lot,
 
 Bấy giờ có năm vua trong xứ là vua thành Sodom, vua thành Gomorrah, vua thành Admah, vua thành Zeboyim, và vua thành Bela (về sau gọi là thành Zoar). Trong mười hai năm các vua này là chư hầu vua xứ Elam, nhưng tới năm thứ mười ba họ nổi loạn. Vì thế vua xứ Elam triệu tập thêm ba vua khác là các vua xứ Shinar, xứ Ellasar, xứ Goyim đi đánh năm vua kia.
 
-Vào năm thứ mười bốn, các đồng minh của vua xứ Elam đã đánh thắng dân Rephaites, dân Zuzites, dân Emites, dân Horites. Sau đó, họ trở về Kadesh và đánh chiếm đất của dân Amalekites, cũng như dân Amorites.
+Vào năm thứ mười bốn, các đồng minh của vua xứ Elam đã đánh thắng dân Rephaim, dân Zuzim, dân Emim, dân Hori. Sau đó, họ trở về Kadesh và đánh chiếm đất của dân Amalek, cũng như dân Amorit.
 
 Các vua Sodom, Gomorrah, Admah, Zeboyim và Bela bèn dàn quân tại thung lũng Siddim để chống lại bốn vua đồng minh của Elam. Bấy giờ, thung lũng Siddim đầy những hố nhựa đường. Khi vua Sodom và vua Gomorrah thua chạy, nhiều người sa xuống hố, số còn lại chạy trốn trên núi. Bên thắng trận cướp tất cả tài vật của Sodom và Gomorrah rồi đi. Họ cũng bắt Lot và lấy tài sản của ông.
 

@@ -91,4 +91,4 @@ Ngày hôm sau cô chị nói với cô em: "Tối qua chị đã ngủ với ch
 
 Tối đó họ lại cho cha uống rượu, rồi cô em vào ngủ với cha, nhưng ông không hay biết gì.
 
-Hai cô con gái của Lot đều có thai với cha mình. Cô chị sinh con trai, đặt tên là Moab, đó là tổ phụ dân Moabites. Cô em cũng sinh con trai, đặt tên là Ben-Ammi, đó là tổ phụ dân Ammonites.
+Hai cô con gái của Lot đều có thai với cha mình. Cô chị sinh con trai, đặt tên là Moab, đó là tổ phụ dân Moab. Cô em cũng sinh con trai, đặt tên là Ben-Ammi, đó là tổ phụ dân Ammon.

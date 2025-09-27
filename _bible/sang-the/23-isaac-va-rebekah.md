@@ -3,7 +3,7 @@ title: Isaac và Rebekah
 description: Đây là chương kể về cuộc hôn nhân giữa Isaac và Rebekah, nhấn mạnh sự dẫn dắt của Thiên Chúa trong việc chọn người bạn đời, lòng tin cậy và sự vâng phục của các nhân vật đối với ý muốn của Ngài.
 ---
 
-Abraham đã rất già, và Thiên Chúa ở với ông. Ông nói với người quản gia trong nhà: "Hãy đặt tay lên đùi ta. Và ta muốn ngươi thề nhân danh Thiên Chúa rằng, ngươi sẽ không cưới cho con trai ta một đứa con gái Canaanites, nơi ta đang trú ngụ. Hãy đi về quê hương ta, tìm vợ cho con ta giữa các bà con của nó."
+Abraham đã rất già, và Thiên Chúa ở với ông. Ông nói với người quản gia trong nhà: "Hãy đặt tay lên đùi ta. Và ta muốn ngươi thề nhân danh Thiên Chúa rằng, ngươi sẽ không cưới cho con trai ta một đứa con gái Canaan, nơi ta đang trú ngụ. Hãy đi về quê hương ta, tìm vợ cho con ta giữa các bà con của nó."
 
 Người đầy tớ thưa: "Nếu người con gái không muốn theo tôi về đất này, tôi có nên đem con ngài về quê hương ngài không?"
 

@@ -7,7 +7,7 @@ Thiên Chúa phán cùng Abram: "Ngươi hãy rời bỏ quê hương và nhà c
 
 Abram ra đi như lời Thiên Chúa. Bấy giờ ông đã bảy mươi lăm tuổi. Ông mang theo vợ ông Sarai, cháu trai Lot, tất cả của cải và gia nhân. Họ đã tới được xứ Canaan.
 
-Vùng đất ấy lúc đó đang có dân Canaanites sinh sống. Abram đi qua xứ này tới cây sồi lớn của ông Moreh tại Shechem. Thiên Chúa hiện ra với ông và phán: "Ta sẽ ban xứ này cho dòng dõi ngươi".
+Vùng đất ấy lúc đó đang có dân Canaan sinh sống. Abram đi qua xứ này tới cây sồi lớn của ông Moreh tại Shechem. Thiên Chúa hiện ra với ông và phán: "Ta sẽ ban xứ này cho dòng dõi ngươi".
 
 Abram dựng một bàn thờ tại đó cho Thiên Chúa.
 
