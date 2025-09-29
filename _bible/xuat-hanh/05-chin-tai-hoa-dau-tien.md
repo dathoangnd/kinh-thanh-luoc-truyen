@@ -43,9 +43,9 @@ Thiên Chúa làm như lời Người nói. Vậy các đàn ruồi dày đặc 
 
 Pharaoh bèn cho gọi Moses và Aaron mà nói: "Hãy đi thờ phượng Thiên Chúa các ngươi ở trong xứ này."
 
-Moses đáp: "Không được đâu. Những của lễ chúng tôi dâng lên Thiên Chúa là ghê tởm với người Ai Cập. Nếu chúng tôi dâng của lễ, họ sẽ ném đá chúng tôi. Chúng tôi phải đi ba ngày đường vào sa mạc để dâng của lễ lên Thiên Chúa như Người phán dạy."
+Moses đáp: "Không được đâu. Những của lễ chúng tôi dâng lên Thiên Chúa là ghê tởm với người Ai Cập. Nếu chúng tôi dâng của lễ, họ sẽ ném đá chúng tôi. Chúng tôi phải đi ba ngày đường vào đồng vắng để dâng của lễ lên Thiên Chúa như Người phán dạy."
 
-Pharaoh nói: "Ta sẽ cho các ngươi đi dâng của lễ lên Thiên Chúa trong sa mạc, nhưng đừng đi xa quá. Ngươi hãy cầu cho cả ta."
+Pharaoh nói: "Ta sẽ cho các ngươi đi dâng của lễ lên Thiên Chúa trong đồng vắng, nhưng đừng đi xa quá. Ngươi hãy cầu cho cả ta."
 
 Moses đáp: "Ngay khi tôi ra khỏi đây, tôi sẽ cầu xin Thiên Chúa, và ngày mai ruồi sẽ biến mất khỏi vua, triều thần và dân chúng. Nhưng xin ngài đừng gạt chúng tôi nữa mà không cho đi dâng của lễ lên Thiên Chúa."
 

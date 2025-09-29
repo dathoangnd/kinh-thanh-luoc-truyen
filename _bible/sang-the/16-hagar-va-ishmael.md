@@ -1,6 +1,6 @@
 ---
 title: Hagar và Ishmael
-description: Hagar, nữ tỳ của Sarah, sinh ra Ishmael sau khi được Abraham nhận làm vợ lẽ. Câu chuyện kể về sự thử thách, lòng tin và sự bảo vệ của Thiên Chúa dành cho Hagar và con trai bà trong sa mạc.
+description: Hagar, nữ tỳ của Sarah, sinh ra Ishmael sau khi được Abraham nhận làm vợ lẽ. Câu chuyện kể về sự thử thách, lòng tin và sự bảo vệ của Thiên Chúa dành cho Hagar và con trai bà trong hoang mạc.
 ---
 
 Sau khi Abram đã sống ở Canaan mười năm, bà Sarai vợ ông vẫn không sinh con. Bà có một nữ đầy tớ người Ai Cập tên là Hagar. Bà nói với Abram: "Thiên Chúa đã làm tôi hiếm muộn. Vậy ông hãy ngủ với đứa đầy tớ của tôi, may ra tôi sẽ có con nhờ nó."
@@ -13,7 +13,7 @@ Abram đáp: "Đứa đầy tớ của bà ở trong tay bà đó. Hãy làm v�
 
 Sarai hành hạ Hagar, thì nàng trốn đi khỏi bà chủ mình.
 
-Sứ thần của Thiên Chúa thấy Hagar gần con suối trong sa mạc, bên cạnh đường tới Shur, thì hỏi rằng: "Hỡi Hagar, đầy tớ của Sarai, ngươi từ đâu tới và sẽ đi đâu?"
+Sứ thần của Thiên Chúa thấy Hagar gần con suối trong hoang mạc, bên cạnh đường tới Shur, thì hỏi rằng: "Hỡi Hagar, đầy tớ của Sarai, ngươi từ đâu tới và sẽ đi đâu?"
 
 Nàng đáp: "Tôi đang chạy trốn khỏi bà Sarai."
 

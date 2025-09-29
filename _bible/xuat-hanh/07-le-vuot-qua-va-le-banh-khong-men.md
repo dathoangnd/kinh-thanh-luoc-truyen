@@ -11,7 +11,7 @@ Moses nói lại với các người già trong Israel: "Hãy tuân giữ nhữn
 
 ---
 
-Thiên Chúa không dẫn họ trên đường qua xứ Philistine, mặc cho đường đó gần hơn. Vì Thiên Chúa nghĩ rằng nếu có chiến tranh xảy ra, dân có thể sợ hãi mà trở về Ai Cập. Vậy Thiên Chúa dẫn dân đi vòng qua sa mạc theo hướng tới Biển Đỏ.
+Thiên Chúa không dẫn họ trên đường qua xứ Philistine, mặc cho đường đó gần hơn. Vì Thiên Chúa nghĩ rằng nếu có chiến tranh xảy ra, dân có thể sợ hãi mà trở về Ai Cập. Vậy Thiên Chúa dẫn dân đi vòng qua hoang mạc theo hướng tới Biển Đỏ.
 
 Dân Israel đi bộ từ Rameses tới Sukkoth. Có tất cả sáu trăm nghìn đàn ông, chưa kể đàn bà và trẻ con. Có nhiều người thuộc dân ngoại cũng đi với họ, và có các đàn chiên dê đông đúc nữa. Dân Israel lấy bột mang từ Ai Cập mà làm bánh không men, vì họ bị đuổi khỏi Ai Cập nên chưa kịp chuẩn bị đồ ăn.
 

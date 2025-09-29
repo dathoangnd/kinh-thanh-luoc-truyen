@@ -3,11 +3,11 @@ title: Pharaoh khước từ
 description: Moses và Aaron đối mặt Pharaoh, truyền đạt mệnh lệnh của Thiên Chúa yêu cầu giải phóng dân Israel. Pharaoh cứng lòng, tăng áp bức, dẫn đến những dấu lạ đầu tiên và lời hứa giải cứu của Thiên Chúa dành cho dân Israel.
 ---
 
-Moses và Aaron đi đến gặp Pharaoh mà nói: "Thiên Chúa của Israel đã phán rằng hãy để dân tôi đi để thờ phượng Ngài trong sa mạc."
+Moses và Aaron đi đến gặp Pharaoh mà nói: "Thiên Chúa của Israel đã phán rằng hãy để dân tôi đi để thờ phượng Ngài trong đồng vắng."
 
 Pharaoh đáp: "Thiên Chúa là ai mà ta phải vâng lời và cho dân Israel đi? Ta chẳng biết Thiên Chúa nào hết và cũng chẳng cho dân Israel đi đâu."
 
-Họ lại nói: "Thiên Chúa của Israel đã hiện ra với chúng tôi. Hãy để chúng tôi đi ba ngày đường vào sa mạc để dâng của lễ lên Thiên Chúa. Nếu không Ngài sẽ đánh phạt chúng tôi bằng bệnh dịch hoặc gươm dao."
+Họ lại nói: "Thiên Chúa của Israel đã hiện ra với chúng tôi. Hãy để chúng tôi đi ba ngày đường vào đồng vắng để dâng của lễ lên Thiên Chúa. Nếu không Ngài sẽ đánh phạt chúng tôi bằng bệnh dịch hoặc gươm dao."
 
 Nhưng Pharaoh đáp: "Hỡi Moses và Aaron, sao các ngươi xui cho dân bỏ việc vậy? Hãy quay lại làm việc đi! Bây giờ dân thì đông còn các ngươi thì lại muốn chúng nghỉ làm."
 

@@ -5,7 +5,7 @@ description: Dân Israel vượt qua Biển Đỏ nhờ quyền năng Thiên Ch�
 
 Sau khi rời Sukkoth, dân Israel đóng trại tại Ethem ở ven sa mạc. Ban ngày Thiên Chúa đi trước họ trong cột mây, còn bên đêm trong cột lửa để soi sáng, nên họ có thể đi cả ngày lẫn đêm. Cả cột mây lẫn cột lửa chẳng bao giờ rời xa dân.
 
-Thiên Chúa phán với Moses: "Nói với dân Israel quay trở lại mà đóng trại gần Pi Hahiroth, ở khoảng giữa Migdol và Biển Đỏ, đối diện với Baal Zephone. Pharaoh sẽ nghĩ các ngươi bị kẹt trong sa mạc nên cứ đi lang thang. Ta sẽ cho Pharaoh cứng lòng, và hắn sẽ đuổi theo các ngươi. Nhưng Ta sẽ được vẻ vang khi chiến thắng Pharaoh và quân đội của hắn, để người Ai Cập biết Ta là Thiên Chúa."
+Thiên Chúa phán với Moses: "Nói với dân Israel quay trở lại mà đóng trại gần Pi Hahiroth, ở khoảng giữa Migdol và Biển Đỏ, đối diện với Baal Zephone. Pharaoh sẽ nghĩ các ngươi bị kẹt trong hoang mạc nên cứ đi lang thang. Ta sẽ cho Pharaoh cứng lòng, và hắn sẽ đuổi theo các ngươi. Nhưng Ta sẽ được vẻ vang khi chiến thắng Pharaoh và quân đội của hắn, để người Ai Cập biết Ta là Thiên Chúa."
 
 Khi Pharaoh biết dân Israel đã đi rồi, vua và triều thần hối hận mà nói: "Chúng ta đã làm gì vậy? Ta đã để dân Israel đi và chúng không còn làm tôi mọi cho ta nữa."
 
