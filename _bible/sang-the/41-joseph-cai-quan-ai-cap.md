@@ -43,7 +43,7 @@ Vậy dân chúng đem ngựa, chiên dê, bò lừa đến đổi lấy lương
 
 Tới năm sau, họ lại nói: "Chúng tôi không dám giấu ngài. Tiền bạc chúng tôi đã hết, súc vật cũng đã thuộc về ngài, chúng tôi không còn gì ngoài thân xác và đất của chúng tôi. Lẽ nào chúng tôi và đất phải hao mòn trước mặt ngài sao? Hãy mua chúng tôi và đất của chúng tôi để đổi lấy lương thực, chúng tôi và đất sẽ làm tôi mọi cho Pharaoh. Cho chúng tôi hạt giống gieo trồng, để chúng tôi sống và đất không phải bỏ hoang."
 
-Vậy Joseph mua hết đất Ai Cập cho Pharaoh. Dân chúng bán hết đất vì nạn đói quá khắc nghiệt. Đất trở thành tài sản của Pharaoh, còn dân chúng nhiều người phục dịch cho vua. Tuy vậy, các thầy tế lễ không phải bán đất mình, vì họ có nhận lương đủ chi dùng từ Pharaoh.
+Vậy Joseph mua hết đất Ai Cập cho Pharaoh. Dân chúng bán hết đất vì nạn đói quá khắc nghiệt. Đất trở thành tài sản của Pharaoh, còn dân chúng nhiều người phục dịch cho vua. Tuy vậy, các thầy tư tế không phải bán đất mình, vì họ có nhận lương đủ chi dùng từ Pharaoh.
 
 Joseph nói với dân chúng: "Nay ta đã mua các ngươi và đất đai các ngươi cho Pharaoh. Đây là hạt giống mà các ngươi sẽ dùng để gieo hạt. Khi mùa vụ tới, phải nộp lại một phần năm cho Pharaoh. Phần còn lại các ngươi sẽ giữ làm hạt giống và làm thức ăn cho gia đình các ngươi."
 

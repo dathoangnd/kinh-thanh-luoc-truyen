@@ -11,7 +11,7 @@ Moses đi ra đón bố vợ, sụp xuống lạy và hôn ông. Họ chào hỏ
 
 Ông Jethro vui mừng mà nói: "Ngợi khen Thiên Chúa, Đấng đã giải cứu con và dân sự khỏi tay Pharaoh và quân Ai Cập. Giờ đây cha nhận biết Thiên Chúa cao cả hơn mọi thần linh, vì Ngài đã xử đoán những ai áp bức dân Israel."
 
-Ông Jethro dâng của lễ toàn thiêu lên Thiên Chúa. Ông Aaron và những người già trong Israel đến cùng ăn uống với bố vợ Moses trước nhan Thiên Chúa.
+Ông Jethro dâng của lễ toàn thiêu lên Thiên Chúa. Ông Aaron và những trưởng lão trong Israel đến cùng ăn uống với bố vợ Moses trước nhan Thiên Chúa.
 
 Ngày hôm sau Moses ngồi phân xử cho dân, họ vây quanh ông từ sáng tới chiều. Ông Jethro thấy vậy thì nói: "Sao con phải ngồi một mình để phân xử cho dân từ sáng tới chiều như vậy?"
 

@@ -5,7 +5,7 @@ description: Moses được Thiên Chúa sai đến giải cứu dân Israel kh�
 
 Cách lâu sau, Pharaoh băng hà. Dân Israel than thở kêu van trong cảnh nô lệ, và tiếng kêu của họ thấu đến Thiên Chúa. Thiên Chúa nghe tiếng họ than van, và Người nhớ lại giao ước của Người với Abraham, Isaac và Israel. Thiên Chúa đoái xem dân Israel và thương xót họ.
 
-Một hôm, Moses đang chăn chiên của bố vợ là ông Jethro. Moses dẫn đàn vật đi qua bên kia đồng vắng tới núi Horeb, là núi của Thiên Chúa. Tại đó sứ thần của Thiên Chúa hiện ra với ông dưới dạng ngọn lửa giữa bụi gai. Moses trông thấy bụi gai cháy mà không lụi tàn.
+Một hôm, Moses đang chăn chiên của bố vợ là ông Jethro. Moses dẫn đàn vật đi qua bên kia đồng vắng tới núi Sinai, là núi của Thiên Chúa. Tại đó sứ thần của Thiên Chúa hiện ra với ông dưới dạng ngọn lửa giữa bụi gai. Moses trông thấy bụi gai cháy mà không lụi tàn.
 
 Moses thầm nghĩ: "Mình phải lại gần xem sự lạ này, vì sao bụi gai cháy mà lại không bị lụi tàn."
 
@@ -27,7 +27,7 @@ Moses thưa: "Giả như con đến với dân và nói rằng Thiên Chúa củ
 
 Thiên Chúa phán: "Ta là Đấng Tự Hữu. Ngươi hãy nói với chúng là Đấng Tự Hữu, cũng là Thiên Chúa của Abraham, Thiên Chúa của Isaac, Thiên Chúa của Jacob đã sai ngươi. Đó là danh Ta đời đời, là danh mà các ngươi sẽ dùng để kêu cầu Ta từ đời nọ đến đời kia."
 
-Ngài lại phán: "Hãy đi, tập hợp các người già của Israel mà nói với chúng Thiên Chúa của cha ông chúng đã sai ngươi đến để đưa chúng ra khỏi cảnh áp bức ở Ai Cập, tới một nơi tràn trề sữa và mật ong. Những người già sẽ nghe lời ngươi. Rồi ngươi với chúng sẽ tới gặp Pharaoh và yêu cầu hắn cho các ngươi đi ba ngày đường vào nơi vắng để dâng của lễ lên Thiên Chúa. Nhưng Ta biết Pharaoh sẽ không cho các ngươi đi trừ khi có một bàn tay mạnh mẽ can thiệp. Ta sẽ dang tay ra đánh phạt dân Ai Cập với những phép lạ trong xứ đó. Rồi hắn sẽ cho các ngươi đi. Ta sẽ cho các ngươi được cảm tình người Ai Cập, nên các ngươi sẽ không ra đi tay không. Mỗi người đàn bà trong các ngươi sẽ hỏi xin láng giềng hoặc người sống cùng nhà những đồ vàng bạc và quần áo mà mặc cho con cái mình. Vậy các ngươi sẽ tước đoạt của cải người Ai Cập."
+Ngài lại phán: "Hãy đi, tập hợp các trưởng lão của Israel mà nói với chúng Thiên Chúa của cha ông chúng đã sai ngươi đến để đưa chúng ra khỏi cảnh áp bức ở Ai Cập, tới một nơi tràn trề sữa và mật ong. Những trưởng lão sẽ nghe lời ngươi. Rồi ngươi với chúng sẽ tới gặp Pharaoh và yêu cầu hắn cho các ngươi đi ba ngày đường vào nơi vắng để dâng của lễ lên Thiên Chúa. Nhưng Ta biết Pharaoh sẽ không cho các ngươi đi trừ khi có một bàn tay mạnh mẽ can thiệp. Ta sẽ dang tay ra đánh phạt dân Ai Cập với những phép lạ trong xứ đó. Rồi hắn sẽ cho các ngươi đi. Ta sẽ cho các ngươi được cảm tình người Ai Cập, nên các ngươi sẽ không ra đi tay không. Mỗi người đàn bà trong các ngươi sẽ hỏi xin láng giềng hoặc người sống cùng nhà những đồ vàng bạc và quần áo mà mặc cho con cái mình. Vậy các ngươi sẽ tước đoạt của cải người Ai Cập."
 
 Moses thưa: "Nếu họ không tin và không nghe con mà nói Thiên Chúa đã chẳng hiện tới với con thì sao?"
 
@@ -75,6 +75,6 @@ Dọc đường đi, Thiên Chúa gặp Moses và định giết ông, bởi l�
 
 Vậy Aaron đi gặp Moses trên núi của Thiên Chúa và hôn ông. Moses kể cho Aaron mọi sự Thiên Chúa đã sai ông nói, và các dấu lạ mà Người đã sai ông làm.
 
-Moses và Aaron tập hợp tất cả người già Israel. Aaron nói cho họ nghe mọi sự Thiên Chúa đã phán dạy Moses. Moses cũng làm các dấu lạ trước mọi người. Khi họ nghe nói Thiên Chúa đã đoái đến họ và thấy sự khổ cực của họ, họ bèn sấp mình xuống mà thờ lạy.
+Moses và Aaron tập hợp tất cả trưởng lão Israel. Aaron nói cho họ nghe mọi sự Thiên Chúa đã phán dạy Moses. Moses cũng làm các dấu lạ trước mọi người. Khi họ nghe nói Thiên Chúa đã đoái đến họ và thấy sự khổ cực của họ, họ bèn sấp mình xuống mà thờ lạy.
 
 Moses được tám mươi tuổi, còn Aaron được tám mươi ba tuổi khi họ vâng lệnh từ Thiên Chúa để giải thoát dân Israel.

@@ -5,7 +5,7 @@ description: Thiên Chúa hướng dẫn dân Israel tổ chức lễ Vượt Qu
 
 Thiên Chúa phán với Moses: "Các ngươi phải ghi nhớ và kỉ niệm lễ Vượt Qua từ đời nọ tới đời kia. Các ngươi hãy ăn mừng lễ trong nhà, đừng mang thịt ra ngoài, và cũng đừng làm gãy cái xương nào. Đầy tớ mà các ngươi đã mua về và đã cắt bì thì có thể ăn. Nhưng không ngoại kiều, người tạm trú trong nhà hay người làm công nào được ăn lễ Vượt Qua. Người ngoại kiều nào sống giữa các ngươi muốn dự lễ thì phải chịu phép cắt bì, thì sẽ được tham dự như một dân trong xứ. Không kẻ nào chưa chịu cắt bì được phép ăn."
 
-Moses nói lại với các người già trong Israel: "Hãy tuân giữ những điều này cho các ngươi và con cháu các ngươi. Khi các ngươi vào đất mà Thiên Chúa hứa ban, phải kỉ niệm ngày này. Nếu con cháu các ngươi hỏi lễ này có ý nghĩa gì, thì nói với chúng đó là lễ Vượt Qua dâng lên Thiên Chúa, Ngài đã vượt qua nhà chúng ta mà đánh phạt dân Ai Cập."
+Moses nói lại với các trưởng lão trong Israel: "Hãy tuân giữ những điều này cho các ngươi và con cháu các ngươi. Khi các ngươi vào đất mà Thiên Chúa hứa ban, phải kỉ niệm ngày này. Nếu con cháu các ngươi hỏi lễ này có ý nghĩa gì, thì nói với chúng đó là lễ Vượt Qua dâng lên Thiên Chúa, Ngài đã vượt qua nhà chúng ta mà đánh phạt dân Ai Cập."
 
 Đêm đó, Thiên Chúa canh thức để dân đi, nên về sau dân Israel cũng canh thức ngày này để tưởng nhớ.
 
