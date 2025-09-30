@@ -25,7 +25,7 @@ layout: default
         {% endif %}
       {% endfor %}
 
-      <a class="block border hover:border-blue-800 rounded-xl p-3 py-2 hover:shadow transition group"
+      <a class="ktBookLink block border hover:border-blue-800 rounded-xl p-3 py-2 hover:shadow transition group"
          href="{{ firstChapterUrl | relative_url }}">
         <div class="flex items-center justify-between">
           <div>
@@ -69,6 +69,9 @@ layout: default
         $continueReading.querySelector('.ktChapterName').innerText = `${book.name} - ${chapterIndex}. ${chapter.title}`
         $continueReading.querySelector('.ktChapterLink').href = chapter.url
         $continueReading.classList.remove('hidden')
+
+        const $bookLink = document.querySelector(`.ktBookLink[href^="/${book.slug}/"]`)
+        $bookLink.href = chapter.url
     }
   })()
 </script>
