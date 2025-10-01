@@ -19,7 +19,7 @@ plugins:
 collections:
   bible:
     output: true
-    permalink: /:path
+    permalink: /:path/
 
 defaults:
   - scope:
