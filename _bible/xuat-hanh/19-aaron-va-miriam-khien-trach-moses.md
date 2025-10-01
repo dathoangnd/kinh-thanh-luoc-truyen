@@ -1,5 +1,5 @@
 ---
-title: Aaron và Miriam trách Moses
+title: Aaron và Miriam khiển trách Moses
 description: Moses bị Aaron và Miriam trách móc vì lấy vợ người Cush, dẫn đến việc Miriam bị phạt phong hủi bởi Thiên Chúa. Câu chuyện thể hiện sự trung tín của Moses và quyền năng của Thiên Chúa trong việc bảo vệ người tôi tớ trung thành.
 ---
 
