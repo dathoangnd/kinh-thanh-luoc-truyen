@@ -20,8 +20,6 @@ Tôi cũng xin nói rõ: có những phần trong Kinh Thánh như luật pháp,
 
 Mục tiêu của bản lược truyện này không phải thay thế Kinh Thánh gốc, mà là mở ra một con đường dễ đi hơn cho người mới. Khi đã quen, người đọc hoàn toàn có thể (và nên) quay lại tìm hiểu các bản dịch đầy đủ, để cảm nhận hết chiều sâu và sự phong phú của Kinh Thánh.
 
-Nói cho cùng, dự án này chỉ là một nỗ lực nhỏ từ cá nhân tôi, với mong muốn giúp ai đó có một khởi đầu nhẹ nhàng hơn khi đọc Kinh Thánh. Tôi hy vọng nó có thể mang lại chút giá trị, dù chỉ là một "bản đồ sơ lược" để dẫn đường.
-
-Nếu bạn tìm thấy trong đây điều gì hữu ích, đó là niềm vui lớn nhất cho tôi.
+Nói cho cùng, dự án này chỉ là một nỗ lực nhỏ từ cá nhân tôi, với mong muốn giúp ai đó có một khởi đầu nhẹ nhàng hơn khi đọc Kinh Thánh. Nếu bạn thấy nó hữu ích, đó sẽ là niềm vui lớn nhất cho tôi.
 
 Mọi ý kiến đóng góp xin gửi về địa chỉ thư điện tử <a href="mailto:dathoangnd@gmail.com?subject=Về Kinh Thánh Lược Truyện" class="underline">dathoangnd@gmail.com</a>
