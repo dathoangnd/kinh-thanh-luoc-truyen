@@ -45,7 +45,7 @@ Moses bèn giơ tay ra nắm lấy con rắn, nó lại trở thành cây gậy 
 
 Thiên Chúa phán: "Đây là dấu chỉ để chúng tin là Thiên Chúa của cha ông chúng đã hiện ra với ngươi. Giờ ngươi nãy cho tay vào trong áo."
 
-Moses cho tay vào trong áo. Khi đưa tay ra, làn da đã bị hủi, trở nên trắng như tuyết.
+Moses cho tay vào trong áo. Khi đưa tay ra, làn da đã bị phong hủi, trở nên trắng như tuyết.
 
 Thiên Chúa phán: "Giờ lại cho tay vào trong áo."
 
