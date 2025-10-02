@@ -17,7 +17,7 @@ Thiên Chúa phán: "Đừng lại gần nữa. Hãy cởi dép ra vì nơi ngư
 
 Moses bèn che mặt đi vì sợ nhìn thấy Thiên Chúa.
 
-Thiên Chúa lại phán: "Ta đã thấy sự cực khổ của dân Ta ở Ai Cập. Ta đã nghe thấu tiếng chúng kêu van bởi bọn chủ nô, và Ta biết nỗi khổ chúng. Vậy Ta xuống để giải cứu chúng khỏi tay người Ai Cập, mang chúng tới một miền đất tốt lành và rộng rãi, miền đất tràn trề sữa và mật ong, là nơi dân Canaan, Hittite, Amorit, Perizzi, Hivvi và Jebusite đang cư ngụ. Vậy giờ ngươi hãy đi, Ta sai ngươi đến với Pharaoh để đem dân ta là Israel ra khỏi Ai Cập."
+Thiên Chúa lại phán: "Ta đã thấy sự cực khổ của dân Ta ở Ai Cập. Ta đã nghe thấu tiếng chúng kêu van bởi bọn chủ nô, và Ta biết nỗi khổ chúng. Vậy Ta xuống để giải cứu chúng khỏi tay người Ai Cập, mang chúng tới một miền đất tốt lành và rộng rãi, miền đất tràn trề sữa và mật ong, là nơi dân Canaan, Hittite, Amorit, Perizzi, Hivvi và Jebusite đang cư ngụ. Vậy giờ ngươi hãy đi, Ta sai ngươi đến với Pharaoh để đem dân Ta là Israel ra khỏi Ai Cập."
 
 Moses thưa rằng: "Con là ai mà dám đến với Pharaoh để đưa dân Israel ra khỏi Ai Cập?"
 

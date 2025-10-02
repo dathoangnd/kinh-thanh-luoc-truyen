@@ -35,11 +35,11 @@ Rồi Ngài phán: "Tiếng kêu trách Sodom và Gomorrah quá lớn, tội l�
 
 Hai thiên sứ quay đi về phía Sodom, nhưng Abraham còn đứng lại trước Thiên Chúa. Abraham lại gần và hỏi: "Ngài sẽ hủy diệt cả người công chính lẫn kẻ ác sao? Nếu có năm mươi người công chính trong thành, Ngài cũng hủy diệt sao? Không, Ngài sẽ chẳng làm vậy đâu. Đấng xét xử thế gian há làm điều như vậy sao?"
 
-Thiên Chúa đáp: "Nếu ta tìm thấy năm mươi người công chính trong Sodom, Ta sẽ không hủy diệt thành."
+Thiên Chúa đáp: "Nếu Ta tìm thấy năm mươi người công chính trong Sodom, Ta sẽ không hủy diệt thành."
 
 Abraham hỏi: "Con là kẻ bạo gan dám nói cùng Ngài, dù con chỉ là tro bụi. Nếu có bốn mươi lăm người công chính, Ngài có hủy diệt thành không?"
 
-Thiên Chúa đáp: "Nếu ta tìm thấy bốn mươi lăm người công chính, Ta sẽ không hủy diệt thành."
+Thiên Chúa đáp: "Nếu Ta tìm thấy bốn mươi lăm người công chính, Ta sẽ không hủy diệt thành."
 
 Abraham lại hỏi: "Nếu chỉ có bốn mươi người công chính thì sao?"
 

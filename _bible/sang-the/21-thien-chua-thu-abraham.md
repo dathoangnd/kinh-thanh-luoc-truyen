@@ -7,7 +7,7 @@ Một ngày kia, Thiên Chúa thử thách Abraham. Người gọi: "Hỡi Abrah
 
 Ông thưa: "Dạ con đây."
 
-Ngài phán: "Hãy đem con một yêu dấu của ngươi là Isaac và đi đến đất Moriah. Hãy hiến tế nó như của lễ toàn thiêu trên núi mà ta sẽ chỉ cho ngươi."
+Ngài phán: "Hãy đem con một yêu dấu của ngươi là Isaac và đi đến đất Moriah. Hãy hiến tế nó như của lễ toàn thiêu trên núi mà Ta sẽ chỉ cho ngươi."
 
 Abraham dậy sớm, thắng lừa, đem theo hai đầy tớ và con mình là Isaac. Sau khi chặt củi để dùng cho lễ toàn thiêu, ông xuất phát để đi đến nơi Thiên Chúa đã truyền dạy.
 
