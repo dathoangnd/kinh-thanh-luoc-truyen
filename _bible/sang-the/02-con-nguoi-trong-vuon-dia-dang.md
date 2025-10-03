@@ -13,7 +13,7 @@ Thiên Chúa đem các loài thú và chim đến cho Adam để ông đặt tê
 
 Thiên Chúa phán: "Con người ở một mình thì không tốt. Ta sẽ tạo thêm một người để giúp đỡ nó."
 
-Vậy Thiên Chúa khiến Adam ngủ say, rồi Người lấy một xương sườn và đắp thịt vào, tạo nên một người đàn bà, rồi dẫn đến cho Adam.
+Thiên Chúa khiến Adam ngủ say, rồi Người lấy một xương sườn và đắp thịt vào, tạo nên một người đàn bà, rồi dẫn đến cho Adam.
 
 Adam nói: "Đây thật là xương của xương tôi, thịt của thịt tôi. Người này sẽ được gọi là đàn bà, vì từ đàn ông mà ra."
 
