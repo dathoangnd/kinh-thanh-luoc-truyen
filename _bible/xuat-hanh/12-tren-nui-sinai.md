@@ -9,13 +9,13 @@ Moses đi lên núi để gặp Thiên Chúa. Thiên Chúa phán với ông: "C�
 
 Moses trở lại và nói với các trưởng lão của Israel những lời Thiên Chúa phán. Họ đồng thanh đáp: "Chúng tôi sẽ làm mọi điều Thiên Chúa dạy."
 
-Moses lên thưa lại với Thiên Chúa. Thiên Chúa phán: "Ta sẽ đến với các ngươi trong một đám mây dày, để dân chúng thấy Ta nói với ngươi và tin ngươi. Hãy đến với dân và thanh tẩy chúng hôm nay và ngày mai. Bảo chúng giặt giũ quần áo để chuẩn bị cho ngày thứ ba, vì ngày đó Ta sẽ xuống từ núi Sinai trước mắt mọi người. Bảo mọi người đứng xa núi ra và đừng chạm vào nó. Ai chạm vào núi, dù là người hay thú vật, sẽ phải chết. Chúng sẽ bị ném đã hoặc bị bắn bằng cung tên, không ai được chạm vào xác chúng. Chỉ khi nào có tiếng tù và thổi lên một hồi dài, chúng có thể đến gần núi."
+Moses lên thưa lại với Thiên Chúa. Thiên Chúa phán: "Ta sẽ đến với các ngươi trong một đám mây dày, để dân chúng thấy Ta nói với ngươi và tin ngươi. Hãy đến với dân và thanh tẩy chúng hôm nay và ngày mai. Bảo chúng giặt giũ quần áo để chuẩn bị cho ngày thứ ba, vì ngày đó Ta sẽ xuống từ núi Sinai trước mắt mọi người. Bảo mọi người đứng xa núi ra và đừng chạm vào nó. Ai chạm vào núi, dù là người hay thú vật, sẽ phải chết. Chúng sẽ bị ném đã hoặc bị bắn bằng cung tên, không ai được chạm vào xác chúng. Chỉ khi nào có tiếng kèn thổi lên một hồi dài, chúng có thể đến gần núi."
 
 Moses xuống nói lại với dân, thanh tẩy họ, bảo họ giặt giũ quần áo. Ông cũng nói với họ: "Hãy giữ mình cho ngày thứ ba và kiêng khem chuyện giường chiếu."
 
-Sáng ngày thứ ba có sấm sét vang động, mây dày bao phủ đỉnh núi, một hồi tù và lớn vang lên. Mọi người trong trại run sợ. Moses dẫn mọi người ra khỏi trại để gặp gỡ Thiên Chúa, và họ đứng dưới chân núi. Ngọn núi Sinai bị bao phủ bởi khói, vì Thiên Chúa xuất hiện trong lửa. Khói bốc lên giống một lò lửa, cả ngọn núi rung chuyển dữ dội. Trong khi tiếng tù và ngày càng lớn thêm, Moses nói cùng Thiên Chúa và Thiên Chúa đáp lại.
+Sáng ngày thứ ba có sấm sét vang động, mây dày bao phủ đỉnh núi, một hồi kèn lớn vang lên. Mọi người trong trại run sợ. Moses dẫn mọi người ra khỏi trại để gặp gỡ Thiên Chúa, và họ đứng dưới chân núi. Ngọn núi Sinai bị bao phủ bởi khói, vì Thiên Chúa xuất hiện trong lửa. Khói bốc lên giống một lò lửa, cả ngọn núi rung chuyển dữ dội. Trong khi tiếng kèn ngày càng lớn thêm, Moses nói cùng Thiên Chúa và Thiên Chúa đáp lại.
 
-Khi dân chúng thấy sấm sét, nghe tiếng tù và và khói bốc ra từ núi, họ vô cùng run sợ. Họ đứng xa mà nói với Moses: "Xin ông nói với chúng tôi thì chúng tôi sẽ nghe. Nhưng xin Thiên Chúa đừng nói với chúng tôi kẻo chúng tôi chết mất."
+Khi dân chúng thấy sấm sét, nghe tiếng kèn và khói bốc ra từ núi, họ vô cùng run sợ. Họ đứng xa mà nói với Moses: "Xin ông nói với chúng tôi thì chúng tôi sẽ nghe. Nhưng xin Thiên Chúa đừng nói với chúng tôi kẻo chúng tôi chết mất."
 
 Moses đáp: "Đừng sợ. Thiên Chúa tới để thử thách các ngươi, để các ngươi kính sợ Người mà khỏi phạm tội."
 

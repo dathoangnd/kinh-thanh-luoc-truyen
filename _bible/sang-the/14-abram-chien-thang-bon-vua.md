@@ -9,7 +9,7 @@ Vào năm thứ mười bốn, các đồng minh của vua xứ Elam đã đánh
 
 Các vua Sodom, Gomorrah, Admah, Zeboyim và Bela bèn dàn quân tại thung lũng Siddim để chống lại bốn vua đồng minh của Elam. Bấy giờ, thung lũng Siddim đầy những hố nhựa đường. Khi vua Sodom và vua Gomorrah thua chạy, nhiều người sa xuống hố, số còn lại chạy trốn trên núi. Bên thắng trận cướp tất cả tài vật của Sodom và Gomorrah rồi đi. Họ cũng bắt Lot và lấy tài sản của ông.
 
-Có một người thoát được tới báo tin cho Abram. Khi Abram biết tin, bèn tập hợp ba trăm mười tám gia nhân trong nhà, cùng ba anh em ông Mamre, mà đuổi theo tới đất Dan. Ban đêm, ông chia người ra đánh quân địch, đuổi tới đất Hobah, phía bắc Damascus. Ông thu về đủ hết tài vật, Lot cùng tài sản của ông, phụ nữ và tất cả dân chúng trở về.
+Có một người thoát được tới báo tin cho Abram. Khi Abram biết tin, bèn tập hợp ba trăm mười tám gia nhân trong nhà, cùng ba anh em ông Mamre, mà đuổi theo tới đất Dan. Ban đêm, ông chia người ra đánh quân địch, đuổi tới đất Hobah, phía bắc Damascus. Ông thu về đủ hết tài vật, Lot cùng tài sản của ông, đàn bà và tất cả dân chúng trở về.
 
 Khi Abram trở về, vua Sodom ra đón ông tại thung lũng Shaveh, và nói: "Hãy trả người cho ta, còn của cải ngươi cứ giữ lấy."
 

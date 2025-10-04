@@ -19,7 +19,7 @@ Bilhah lại sinh con, đặt tên là Naphtali. Rachel nói: "Tôi đã phải 
 
 Khi Leah thấy mình không sinh con nữa, thì đem đứa đầy tớ Zilpah cho Jacob làm vợ lẽ. Zilpah sinh cho Jacob một con trai, đặt tên là Gad.
 
-Zilpah lại sinh con trai, đặt tên là Asher. Leah nói: "Tôi lấy làm vui mừng! Mọi phụ nữa sẽ nói tôi được phước."
+Zilpah lại sinh con trai, đặt tên là Asher. Leah nói: "Tôi lấy làm vui mừng! Mọi người nữ sẽ nói tôi được phước."
 
 Vào mùa thu hoạch lúa mì, Reuben ra đồng tìm thấy mấy cây yêu dược, bèn đem về cho mẹ mình Leah. Rachel nói với Leah: "Cho em mấy cây yêu dược của con chị với."
 

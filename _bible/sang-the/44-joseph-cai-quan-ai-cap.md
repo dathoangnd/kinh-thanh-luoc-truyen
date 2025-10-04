@@ -29,6 +29,8 @@ Pharaoh nói với Joseph: "Vì Thiên Chúa đã cho ngươi biết điều nà
 
 Pharaoh tháo nhẫn ở tay ra đeo cho Joseph, mặc cho cậu áo choàng quý và đeo vòng vàng vào cổ cậu. Cậu được ngồi xe ngựa, có người dọn đường cho đi. Khi đó Joseph được ba mươi tuổi. Pharaoh đặt tên cho Joseph là Zaphenath-Paneah và gả con gái của Potiphera, tư tế thành On cho cậu làm vợ. Nàng sinh được cho cậu hai người con trai là Manasseh và Ephraim.
 
+---
+
 Joseph đi tuần hành khắp xứ Ai Cập. Trong bảy năm được mùa, xứ được dư dật. Joseph cho thu gom lương thực dư trong bảy năm và tích trữ vào kho trong các thành. Joseph đã thu gom được rất nhiều thóc lúa, như cát ngoài biển, đến nỗi người ta không đếm được vì quá nhiều.
 
 Bảy năm được mùa kết thúc, và bảy năm đói kém bắt đầu, như Joseph đã tiên đoán. Khắp các xứ khác cũng có nạn đói, nhưng ở Ai Cập thì vẫn có lương thực. Khi dân Ai Cập bị đói, họ kêu xin Pharaoh. Pharaoh nói: "Đi đến với ông Joseph và làm theo điều ông chỉ bảo."

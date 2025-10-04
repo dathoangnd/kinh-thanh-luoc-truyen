@@ -3,30 +3,6 @@ title: Thành Sodom và Gomorrah bị hủy diệt
 description: Chương này kể về sự hủy diệt của hai thành Sodom và Gomorrah do tội lỗi của dân cư nơi đây, nhấn mạnh sự công chính và lòng thương xót của Thiên Chúa đối với những người công chính như ông Lot.
 ---
 
-Thiên Chúa hiện tới cùng Abraham gần cây sồi lớn của Mamre khi ông đang ngồi ở cửa lều hóng mát. Abraham ngước lên và thấy ba người đứng gần đó. Ông chạy ra khỏi cửa lều để tiếp rước họ và cúi sấp mình xuống đất.
-
-Ông nói: "Thưa các ngài, nếu tôi được ơn trước mặt các ngài, xin đừng bỏ đi luôn. Tôi xin đem nước để các ngài rửa chân rồi nghỉ dưới gốc cây này. Tôi cũng xin dâng đồ ăn để các ngài lại sức rồi hãy lên đường."
-
-Họ đáp: "Vâng, xin hãy làm như ông nói."
-
-Abraham chạy vào lều gọi bà Sarah: "Hãy mau lấy ba đấu bột tốt nhất mà làm bánh."
-
-Ông lại chạy đi bắt một con bê non và giao cho đầy tớ làm đồ ăn. Ông đem sữa đông, sữa và con bê đã nấu tới dọn bữa trước mặt ba vị khách. Trong lúc họ ăn, ông đứng cạnh họ dưới gốc cây.
-
-Họ hỏi ông: "Sarah vợ ông đâu?"
-
-Ông đáp: "Thưa, ở trong lều đằng kia."
-
-Một người trong số họ nói: "Ta sẽ trở lại với ngươi độ giờ này sang năm. Khi đó Sarah sẽ có một con trai."
-
-Sarah đang nghe ở cửa lều sau họ. Sarah bấy giờ đã già, nên bà cười và tự nhủ: "Hai chúng tôi đã già còn có thể hưởng vui thú đó sao?"
-
-Thiên Chúa phán hỏi Abraham: "Vì sao Sarah lại cười? Có điều gì vượt quá sức Thiên Chúa? Độ này sang năm Ta sẽ trở lại, khi đó Sarah sẽ có một con trai."
-
-Sarah sợ nên chối rằng: "Con đâu có cười."
-
-Nhưng Người đáp: "Thật ngươi đã cười."
-
 Khi các vị khách đứng dậy mà đi, họ ngó về phía Sodom, Abraham đi theo để tiễn họ.
 
 Thiên Chúa nói: "Ta có nên giấu Abraham điều Ta sắp làm không? Abraham rồi đây sẽ trở nên một dân lớn, mọi dân tộc sẽ được chúc phúc nhờ nó. Ta đã chọn nó, để nó dạy con cháu nó sau này đi theo đường lối Ta."
@@ -82,13 +58,3 @@ Thiên sứ đáp: "Được thôi, ta nhận lời ngươi thêm lần nữa. T
 Lot chạy tới thành Zoar, thì mặt trời đã lên cao. Thiên Chúa làm mưa lửa từ trời xuống Sodom và Gomorrah. Ngài hủy diệt hai thành đó, cả vùng đồng bằng, mọi cư dân, cùng cây cỏ trong xứ. Nhưng vợ Lot ngoái lại nhìn, thì hóa ra một cột muối.
 
 Sáng sớm hôm sau Abraham ra nơi mình đã nói chuyện với Thiên Chúa. Ông nhìn về phía Sodom, Gomorrah và cả vùng đồng bằng, thì thấy khói dày đặc bay lên như một lò lửa lớn.
-
-Lot và hai con gái sợ hãi bỏ Zoar và lên núi, ở trong một hang động. Một ngày kia cô chị cả nói với cô em: "Cha ta đã già, mà không có người đàn ông nào quanh đây để cho chúng ta sinh con. Vậy hãy cho cha uống rượu và ngủ với người để bảo tồn dòng dõi cho cha."
-
-Đêm đó họ cho cha uống rượu, rồi cô con gái lớn vào ngủ với cha, nhưng ông không hay biết gì.
-
-Ngày hôm sau cô chị nói với cô em: "Tối qua chị đã ngủ với cha rồi. Hãy cho cha uống rượu đêm nay nữa, rồi em hãy vào ngủ với cha."
-
-Tối đó họ lại cho cha uống rượu, rồi cô em vào ngủ với cha, nhưng ông không hay biết gì.
-
-Hai cô con gái của Lot đều có thai với cha mình. Cô chị sinh con trai, đặt tên là Moab, đó là tổ phụ dân Moab. Cô em cũng sinh con trai, đặt tên là Ben-Ammi, đó là tổ phụ dân Ammon.

@@ -1,6 +1,6 @@
 ---
 title: Do thám xứ Canaan
-description: 
+description: Moses sai mười hai thủ lĩnh đi do thám xứ Canaan. Vùng đất trù phú nhưng dân cư hùng mạnh khiến Israel hoang mang, dẫn đến sự bất tuân và hình phạt phải lang thang bốn mươi năm trong hoang mạc.
 ---
 
 Thiên Chúa phán với Moses: "Hãy sai người đi do thám đất Canaan, xứ mà Ta ban cho Israel. Từ mỗi chi tộc hãy chọn lấy một người trong số các thủ lĩnh."

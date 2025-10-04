@@ -11,7 +11,7 @@ Abraham nói: "Đừng đem con ta về đó. Thiên Chúa đã đem ta ra khỏ
 
 Người đầy tớ đặt tay lên đùi chủ mình là Abraham và thề với ông.
 
-Người đầy tớ ra đi, đem theo mười con lạc đà chở đầy sản vật rồi đi tới xứ Aram Naharayim, tới thành của Nahor, anh trai ông Abraham. Ông để lạc đà quỳ xuống nghỉ gần cái giếng ngoài thành vào buổi chiều, tới giờ phụ nữ đi ra lấy nước.
+Người đầy tớ ra đi, đem theo mười con lạc đà chở đầy sản vật rồi đi tới xứ Aram Naharayim, tới thành của Nahor, anh trai ông Abraham. Ông để lạc đà quỳ xuống nghỉ gần cái giếng ngoài thành vào buổi chiều, tới giờ đàn bà con gái đi ra lấy nước.
 
 Người đầy tớ cầu nguyện: "Lạy Thiên Chúa của chủ con là ông Abraham, xin làm ơn cho chủ con và cho công việc con được thành. Con đang đứng bên giếng này, và các cô gái đang ra xách nước. Xin cho cô gái nào mà con xin uống nước mà cô ấy cho cả con và lạc đà cùng uống, thì đó là người vợ mà Ngài chọn cho tôi tớ Ngài là Isaac. Nhờ đó con sẽ biết là Ngài làm ơn cho chủ con vậy."
 
