@@ -1,6 +1,8 @@
 ---
 title: Gia phả của Abram
 description: Gia phả của Abram, hành trình di cư của gia đình Abram từ Ur đến Harran, và những câu chuyện về các thành viên trong gia phả theo Kinh Thánh.
+redirect_from:
+  - /sang-the/10-gia-pha-cua-abram/
 ---
 
 Hai năm sau cơn nước lụt, Shem được một trăm tuổi và sinh Arphaxad. Shem còn sống thêm năm trăm năm nữa rồi qua đời.

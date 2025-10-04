@@ -1,6 +1,8 @@
 ---
 title: Joseph giải mộng
 description: Joseph giải nghĩa giấc mơ cho hai quan của Pharaoh trong ngục, dự báo số phận của họ và thể hiện sự khôn ngoan cùng lòng tin vào Thiên Chúa.
+redirect_from:
+  - /sang-the/40-joseph-giai-mong/
 ---
 
 Một thời gian sau, Pharaoh nổi giận với quan hầu rượu và quan làm bánh của vua, nên tống hai người này vào ngục nơi Joseph đang bị giam giữ. Viên cai ngục giao họ cho Joseph trông nom.

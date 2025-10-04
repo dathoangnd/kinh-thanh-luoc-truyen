@@ -1,6 +1,8 @@
 ---
 title: Rachel và Isaac qua đời
 description: Chương kể về sự ra đi của Rachel khi sinh Benjamin, việc Reuben phạm lỗi với Israel, và cái chết của Isaac.
+redirect_from:
+  - /sang-the/36-rachel-va-isaac-qua-doi/
 ---
 
 Một thời gian sau, gia đình ông Israel rời Bethel và ra đi. Khi tới gần Ephrath (về sau gọi là Bethlehem), bà Rachel trở dạ nhưng lại khó sinh. Khi đang đau đớn, bà đỡ nói: "Đừng sợ, vì bà có một đứa con trai nữa."

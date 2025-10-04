@@ -1,6 +1,8 @@
 ---
 title: Thiên Chúa gọi Abram
 description: Thiên Chúa gọi Abram rời quê hương, bắt đầu hành trình đức tin và trở thành tổ phụ của dân tộc Israel. Ý nghĩa của sự vâng phục và lời hứa từ Thiên Chúa dành cho Abram.
+redirect_from:
+  - /sang-the/11-thien-chua-goi-abram/
 ---
 
 Thiên Chúa phán cùng Abram: "Ngươi hãy rời bỏ quê hương và nhà cha ngươi mà đến xứ Ta sẽ chỉ cho ngươi. Ta sẽ cho ngươi nên một dân tộc lớn. Ta sẽ ban phước cho ngươi, làm cho tên tuổi ngươi lừng lẫy và ngươi sẽ thành một nguồn phước lành. Ta sẽ chúc phúc cho ai chúc phúc ngươi, và nguyền rủa ai nguyền rủa ngươi. Nhờ ngươi mà mọi dân tộc thế gian sẽ được chúc phúc."

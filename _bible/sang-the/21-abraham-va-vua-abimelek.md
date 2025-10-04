@@ -1,6 +1,8 @@
 ---
 title: Abraham và vua Abimelek
 description: Abraham gặp vua Abimelek, trải qua thử thách về sự thật và lòng tin, qua đó thể hiện sự bảo vệ và dẫn dắt của Thiên Chúa dành cho Abraham cùng gia đình ông.
+redirect_from:
+  - /sang-the/19-abraham-va-vua-abimelek/
 ---
 
 Abraham dời tới miền Negev và kiều ngụ ở Gerar, ở khoảng giữa Kadesh và Shur.

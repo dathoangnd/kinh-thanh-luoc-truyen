@@ -1,6 +1,8 @@
 ---
 title: Giao ước của Thiên Chúa
 description: Giao ước của Thiên Chúa với Noah sau trận đại hồng thủy. Lời hứa không hủy diệt mặt đất bằng nước lụt nữa, dấu chỉ cầu vồng và những quy định mới cho nhân loại.
+redirect_from:
+  - /sang-the/08-giao-uoc-cua-thien-chua/
 ---
 
 Thiên Chúa nhớ lại Noah cùng các loài sinh vật ở trong tàu với ông, bèn khiến một trận gió thổi trên mặt đất, thì nước dừng lại. Các mạch nước ngầm lớn và các cống trời đóng lại, mưa trên trời không rơi xuống nữa. Nước dần dần rút xuống.

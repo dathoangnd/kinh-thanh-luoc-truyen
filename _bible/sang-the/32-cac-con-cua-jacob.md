@@ -1,6 +1,8 @@
 ---
 title: Các con của Jacob
 description: Câu chuyện về các con của Jacob, sự ganh đua giữa Leah và Rachel, cùng những thử thách, niềm vui và ân sủng Thiên Chúa dành cho gia đình Jacob.
+redirect_from:
+  - /sang-the/30-cac-con-cua-jacob/
 ---
 
 Thiên Chúa thấy Leah không được yêu thương, bèn cho nàng có con, còn Rachel thì hiếm muộn.

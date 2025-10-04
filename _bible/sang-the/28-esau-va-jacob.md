@@ -1,6 +1,8 @@
 ---
 title: Esau và Jacob
 description: Chương này kể về mối quan hệ phức tạp giữa hai anh em Esau và Jacob, với sự tranh giành quyền trưởng nam.
+redirect_from:
+  - /sang-the/26-esau-va-jacob/
 ---
 
 Khi Isaac được sáu mươi tuổi, Rebekah vẫn không sinh con. Isaac cầu khẩn Thiên Chúa cho vợ mình, và Rebekah mang thai đôi. Các con đạp nhau trong bụng khiến nàng đau đớn. Nàng khẩn cầu Thiên Chúa: "Cớ sao con lại chịu như vậy?"

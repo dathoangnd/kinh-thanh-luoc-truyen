@@ -1,6 +1,8 @@
 ---
 title: Thiên Chúa thử Abraham
 description: Thiên Chúa thử thách đức tin của Abraham bằng cách yêu cầu ông dâng Isaac, con trai duy nhất của mình, làm lễ tế. Qua sự vâng phục của Abraham, Thiên Chúa đã xác nhận giao ước và ban phúc lành lớn lao cho ông cùng dòng dõi.
+redirect_from:
+  - /sang-the/21-thien-chua-thu-abraham/
 ---
 
 Một ngày kia, Thiên Chúa thử thách Abraham. Người gọi: "Hỡi Abraham!"

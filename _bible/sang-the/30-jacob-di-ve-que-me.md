@@ -1,6 +1,8 @@
 ---
 title: Jacob đi về quê mẹ
 description: Jacob rời nhà, lên đường về quê mẹ để tránh sự giận dữ của Esau, bắt đầu hành trình mới đầy thử thách và những trải nghiệm tâm linh sâu sắc.
+redirect_from:
+  - /sang-the/28-jacob-di-ve-que-me/
 ---
 
 Esau trở nên thù ghét Jacob vì lời chúc phúc của cha cho cậu. Cậu tự nhủ: "Ngày tang cha ta cũng gần rồi, tới lúc đó ta sẽ giết Jacob em ta."

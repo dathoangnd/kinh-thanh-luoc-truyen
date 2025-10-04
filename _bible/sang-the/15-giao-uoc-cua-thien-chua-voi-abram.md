@@ -1,6 +1,8 @@
 ---
 title: Giao ước của Thiên Chúa với Abram
 description: Chương này kể về giao ước giữa Thiên Chúa và Abram, đánh dấu bước ngoặt trong lịch sử đức tin. Thiên Chúa hứa ban phước lành, đất hứa và dòng dõi đông đảo cho Abram, khẳng định sự trung tín và kế hoạch cứu độ dành cho nhân loại qua ông.
+redirect_from:
+  - /sang-the/15-giao-uoc-cua-thien-chua-voi-abram/
 ---
 
 Sau các việc đó, Thiên Chúa hiện ra với Abram trong một thị kiến: "Hỡi Abram, đừng sợ. Ta là lá chắn cho ngươi, phần thưởng của ngươi sẽ rất lớn."

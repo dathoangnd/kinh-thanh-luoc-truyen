@@ -1,6 +1,8 @@
 ---
 title: Joseph tỏ mình cho anh em
 description: Joseph tỏ mình với các anh em, tha thứ cho họ và tiết lộ ý nghĩa sâu xa của những biến cố đã qua, đồng thời mời cả gia đình Israel đến Ai Cập để đoàn tụ và hưởng sự bảo vệ trong thời kỳ đói kém.
+redirect_from:
+  - /sang-the/44-joseph-to-minh-cho-anh-em/
 ---
 
 Joseph truyền lệnh cho quản gia rằng: "Hãy chất đầy lương thực vào bao cho họ, và đặt các gói bạc vào miệng bao mỗi người. Riêng bao của đứa út thì đặt thêm cái chén bạc của ta vào nữa."

@@ -1,6 +1,8 @@
 ---
 title: Sa ngã
 description: Chuyện con người sa ngã trong vườn Eden. Adam và Eve bị cám dỗ bởi con rắn, ăn trái cấm, nhận biết thiện ác, và bị Thiên Chúa đuổi khỏi vườn địa đàng.
+redirect_from:
+  - /sang-the/03-sa-nga/
 ---
 
 Trong các loài vật mà Thiên Chúa đã sáng tạo, rắn là loài xảo quyệt nhất. Nó hỏi người nữ: "Có thật Thiên Chúa cấm các ngươi ăn trái cây trong vườn không?"

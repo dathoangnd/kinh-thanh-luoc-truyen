@@ -1,6 +1,8 @@
 ---
 title: Isaac ra đời, mẹ con Ishmael bị đuổi
 description: Isaac ra đời theo lời hứa của Thiên Chúa, dẫn đến xung đột giữa Sarah và Hagar. Ishmael cùng mẹ bị đuổi khỏi nhà Abraham, đánh dấu bước ngoặt quan trọng trong lịch sử các dòng dõi.
+redirect_from:
+  - /sang-the/20-isaac-ra-doi-me-con-ishmael-bi-duoi/
 ---
 
 Thiên Chúa đoái đến Sarah như Người đã phán. Sarah mang thai và sinh một con trai cho Abraham khi ông đã được một trăm tuổi. Abraham đặt tên con trẻ là Isaac. Khi Isaac được tám ngày tuổi, Abraham làm lễ cắt bì cho con, như Thiên Chúa phán dạy.

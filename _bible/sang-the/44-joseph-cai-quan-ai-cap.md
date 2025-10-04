@@ -1,6 +1,8 @@
 ---
 title: Joseph cai quản Ai Cập
 description: Joseph giải nghĩa giấc mơ của Pharaoh, trở thành người cai quản Ai Cập, tích trữ lương thực trong bảy năm được mùa và cứu dân Ai Cập cùng các xứ lân cận khỏi nạn đói khắc nghiệt.
+redirect_from:
+  - /sang-the/41-joseph-cai-quan-ai-cap/
 ---
 
 Cách hai năm sau, Pharaoh nằm chiêm bao thấy mình đứng bên bờ sông Nile. Từ sông có bảy con bò béo mập đi lên gặm cỏ trong đám sậy. Sau đó, có bảy con bò khác gầy gò và xấu xí đi lên rồi nuốt bảy con bò béo mập. Pharaoh choàng tỉnh giấc.

@@ -1,6 +1,8 @@
 ---
 title: Dòng dõi Cain
 description: Kể về hậu duệ của Cain, sự hình thành các nghề nghiệp đầu tiên như chăn súc vật, nhạc công, thợ rèn, và câu chuyện về Lamech cùng lời tuyên bố báo thù của ông.
+redirect_from:
+  - /sang-the/05-dong-doi-cain/
 ---
 
 Cain ăn nằm cùng vợ mình, nàng thụ thai và sinh ra Enoch. Cain xây một cái thành đặt tên là Enoch theo tên con trai mình.

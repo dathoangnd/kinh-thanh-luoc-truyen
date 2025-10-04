@@ -1,6 +1,8 @@
 ---
 title: Joseph qua đời
 description: Joseph tha thứ cho các anh em, nhắn nhủ về lời hứa của Thiên Chúa và dặn dò đưa hài cốt về xứ hứa. Câu chuyện kết thúc với sự an ủi, và niềm tin vào sự quan phòng của Thiên Chúa.
+redirect_from:
+  - /sang-the/47-joseph-qua-doi/
 ---
 
 Các anh Joseph thấy cha mình đã qua đời, thì bảo nhau: "Không biết Joseph có còn hận chúng ta và trả thù chúng ta vì những việc chúng ta đã làm không?"

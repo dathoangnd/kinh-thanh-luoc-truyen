@@ -1,6 +1,8 @@
 ---
 title: Israel xuống Ai Cập
 description: Israel cùng gia đình di cư xuống Ai Cập, đoàn tụ với Joseph, định cư tại Goshen và bắt đầu một hành trình mới đầy phước lành.
+redirect_from:
+  - /sang-the/45-israel-xuong-ai-cap/
 ---
 
 Vậy ông Israel ra đi với tất cả người nhà và tài vật mình. Khi đến Beersheba, ông dâng của lễ lên Thiên Chúa của cha ông Isaac.

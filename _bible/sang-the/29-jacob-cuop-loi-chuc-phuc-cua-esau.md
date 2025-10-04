@@ -1,6 +1,8 @@
 ---
 title: Jacob cướp lời chúc phúc của Esau
 description: Jacob đã lừa cha mình là Isaac để nhận lời chúc phúc vốn dành cho người anh Esau, dẫn đến xung đột lớn trong gia đình và thay đổi vận mệnh của cả hai anh em.
+redirect_from:
+  - /sang-the/27-jacob-cuop-loi-chuc-phuc-cua-esau/
 ---
 
 Khi Isaac đã già và mắt mờ chẳng thấy được nữa, ông gọi Esau và nói: "Con ơi, cha đã già và không biết ngày nào phải chết. Vậy con hãy lấy ống tên và cung  và đi ra ngoài đồng săn thịt rừng cho cha. Hãy dọn một món cha thích để cha ăn. Rồi cha sẽ chúc phước cho con trước khi qua đời."

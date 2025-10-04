@@ -1,6 +1,8 @@
 ---
 title: Abram và Lot chia rẽ
 description: Abram và Lot chia tay nhau để tránh xung đột, mỗi người chọn một vùng đất riêng. Câu chuyện thể hiện sự khôn ngoan, lòng vị tha của Abram và mở đầu cho những biến cố quan trọng trong hành trình đức tin của ông.
+redirect_from:
+  - /sang-the/13-abram-va-lot-chia-re/
 ---
 
 Abram từ Ai Cập về lại miền Negev với vợ ông Sarai, cháu ông Lot, cùng tất cả tài vật. Abram đã trở nên rất giàu có với nhiều súc vật, vàng và bạc.

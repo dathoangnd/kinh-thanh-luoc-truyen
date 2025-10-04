@@ -1,6 +1,8 @@
 ---
 title: Jacob làm giàu
 description: Jacob làm giàu nhờ sự khôn ngoan và ơn chúc phúc của Thiên Chúa, phân chia đàn vật với Laban, dùng mẹo để tăng đàn vật của mình, trở nên giàu có và có nhiều tôi tớ.
+redirect_from:
+  - /sang-the/31-jacob-lam-giau/
 ---
 
 Sau khi Rachel sinh Joseph, Jacob bèn nói với ông Laban: "Xin cho con đi, trở về quê hương con. Xin cho con đem theo vợ con con đi. Cha biết con đã phục vụ cha vất vả thế nào."

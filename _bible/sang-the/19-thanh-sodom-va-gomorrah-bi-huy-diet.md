@@ -1,6 +1,8 @@
 ---
 title: Thành Sodom và Gomorrah bị hủy diệt
 description: Chương này kể về sự hủy diệt của hai thành Sodom và Gomorrah do tội lỗi của dân cư nơi đây, nhấn mạnh sự công chính và lòng thương xót của Thiên Chúa đối với những người công chính như ông Lot.
+redirect_from:
+  - /sang-the/18-thanh-sodom-va-gomorrah-bi-huy-diet/
 ---
 
 Khi các vị khách đứng dậy mà đi, họ ngó về phía Sodom, Abraham đi theo để tiễn họ.

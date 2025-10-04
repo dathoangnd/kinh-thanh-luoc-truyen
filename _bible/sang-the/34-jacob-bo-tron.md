@@ -1,6 +1,8 @@
 ---
 title: Jacob bỏ trốn
 description: Jacob cùng gia đình bỏ trốn khỏi Laban, đối mặt với sự truy đuổi, những tranh chấp về tài sản và tượng thần, và lập giao ước hòa bình trên núi Gilead dưới sự bảo vệ của Thiên Chúa.
+redirect_from:
+  - /sang-the/32-jacob-bo-tron/
 ---
 
 Khi xảy ra các việc đó, ông Laban trở nên không vui. Các con trai ông nói: "Jacob đã lấy tất cả những gì thuộc về cha ta, và nhờ cha ta mới giàu có như vậy."

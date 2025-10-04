@@ -1,6 +1,8 @@
 ---
 title: Lần thứ hai xuống Ai Cập
 description: Các anh em của Joseph trở lại Ai Cập lần thứ hai để mua lương thực, mang theo Benjamin và những món quà quý, đối mặt với thử thách và sự xúc động khi đoàn tụ gia đình dưới sự sắp đặt của Joseph.
+redirect_from:
+  - /sang-the/43-lan-thu-hai-xuong-ai-cap/
 ---
 
 Khi gia đình ông Israel ăn hết lương thực mua ở Ai Cập, nạn đói vẫn còn hoành hành nên ông nói với các con trai: "Các con hãy quay lại và mua thêm ít lương thực nữa."

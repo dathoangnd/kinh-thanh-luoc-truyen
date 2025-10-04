@@ -1,6 +1,8 @@
 ---
 title: Israel trở về Bethel
 description: Israel trở về Bethel, dựng bàn thờ cho Thiên Chúa, từ bỏ các tượng thần ngoại, và nhận được sự bảo vệ của Thiên Chúa trên hành trình.
+redirect_from:
+  - /sang-the/35-israel-tro-ve-bethel/
 ---
 
 Thiên Chúa phán với Israel: "Hãy lên Bethel mà ở, và dựng một bàn thờ cho Thiên Chúa, Đấng đã hiện đến với ngươi khi ngươi chạy trốn khỏi Esau anh ngươi."

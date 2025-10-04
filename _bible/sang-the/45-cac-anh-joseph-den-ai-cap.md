@@ -1,6 +1,8 @@
 ---
 title: Các anh Joseph đến Ai Cập
 description: Các anh của Joseph đến Ai Cập mua lương thực trong nạn đói, bị Joseph thử thách và giam giữ, khiến họ hối hận về việc đã làm với em mình. Câu chuyện về sự đoàn tụ, thử thách và lòng thương xót.
+redirect_from:
+  - /sang-the/42-cac-anh-joseph-den-ai-cap/
 ---
 
 Ông Israel biết ở Ai Cập có thóc lúa, thì nói với các con: "Sao các con cứ ngơ ngẩn nhìn nhau vậy? Cha nghe nói ở Ai Cập có thóc bán. Hãy xuống đó và mua ít lương thực để chúng ta sống mà khỏi chết."

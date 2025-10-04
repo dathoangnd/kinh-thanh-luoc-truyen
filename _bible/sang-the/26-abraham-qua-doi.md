@@ -1,6 +1,8 @@
 ---
 title: Abraham qua đời
 description: Abraham kết thúc cuộc đời sau khi chứng kiến sự thành tựu các lời hứa của Thiên Chúa. Chương này kể về những ngày cuối cùng của Abraham, sự qua đời và di sản ông để lại cho các thế hệ sau.
+redirect_from:
+  - /sang-the/24-abraham-qua-doi/
 ---
 
 Ông Abraham lấy thêm một vợ nữa tên là Keturah. Bà sinh cho ông Zimran, Jokshan, Medan, Midian, Ishbak và Shuah.

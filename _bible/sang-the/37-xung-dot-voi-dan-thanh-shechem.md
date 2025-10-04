@@ -1,6 +1,8 @@
 ---
 title: Xung đột với dân thành Shechem
 description: Chương kể về xung đột giữa gia đình Israel và dân thành Shechem sau khi Dinah bị Shechem cưỡng hiếp, dẫn đến sự trả thù đẫm máu của Simeon và Levi, cùng những hệ quả nghiêm trọng cho cả gia đình Israel.
+redirect_from:
+  - /sang-the/34-xung-dot-voi-dan-thanh-shechem/
 ---
 
 Một hôm, Dinah con gái ông Israel ra thăm bọn gái xứ đó. Khi Shechem, là con trai ông Hamor thủ lĩnh xứ đó, thấy nàng, thì cướp đi và cưỡng hiếp nàng. Chàng thương mến nàng Dinah và dùng lời ngon ngọt dụ dỗ. Shechem gặp cha mình là Hamor và nói: "Xin lấy cô gái đó cho con làm vợ."

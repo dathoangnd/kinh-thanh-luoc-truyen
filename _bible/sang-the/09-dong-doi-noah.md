@@ -1,6 +1,8 @@
 ---
 title: Dòng dõi Noah
 description: Dòng dõi Noah và các con trai sau đại hồng thủy, nguồn gốc các dân tộc, câu chuyện về lời nguyền của Canaan, và sự kiện xây tháp Babel dẫn đến sự phân tán ngôn ngữ loài người.
+redirect_from:
+  - /sang-the/09-dong-doi-noah/
 ---
 
 Các con trai của Noah đi cùng ông trên tàu là Japheth, Shem và Ham.

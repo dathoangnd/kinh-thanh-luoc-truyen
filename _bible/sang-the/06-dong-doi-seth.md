@@ -1,6 +1,8 @@
 ---
 title: Dòng dõi Seth
 description: Kể về các thế hệ nối tiếp từ Seth đến Noah, ghi lại những nhân vật quan trọng trong lịch sử nhân loại theo Kinh Thánh, và lời hứa an ủi qua dòng dõi này.
+redirect_from:
+  - /sang-the/06-dong-doi-seth/
 ---
 
 Khi Seth được một trăm lẻ năm tuổi, ông sinh ra một người con trai, đặt tên là Enosh. Từ thời điểm đó, loài người bắt đầu kêu cầu danh Thiên Chúa.

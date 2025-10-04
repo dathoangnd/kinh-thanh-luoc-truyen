@@ -1,6 +1,8 @@
 ---
 title: Đại hồng thủy
 description: Chuyện Noah và đại hồng thủy. Thiên Chúa quyết định hủy diệt loài người vì tội lỗi của họ, chỉ cứu Noah cùng gia đình và các loài vật trên con tàu vượt qua trận lụt lịch sử kéo dài bốn mươi ngày đêm.
+redirect_from:
+  - /sang-the/07-dai-hong-thuy/
 ---
 
 Khi loài người sinh sôi thêm nhiều trên mặt đất, các con trai của Thiên Chúa thấy con gái loài người xinh đẹp, bèn cưới họ làm vợ. Họ sinh ra con cái gọi là người Nephilim, về sau trở thành những anh hùng trứ danh.

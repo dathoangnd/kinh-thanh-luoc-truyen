@@ -1,6 +1,8 @@
 ---
 title: Judah và Tamar
 description: Chương kể về câu chuyện Judah và Tamar, những biến cố trong gia đình Judah, sự công chính của Tamar, và nguồn gốc của hai người con sinh đôi Perez và Zerah.
+redirect_from:
+  - /sang-the/37-judah-va-tamar/
 ---
 
 Judah, con ông Israel đi xuống ở với một người Adullam tên là Hirah. Tại đây, ông gặp con gái một người Canaan tên là Shua và lấy làm vợ. Bà sinh cho ông ba người con trai là Er, Onan và Shelah.

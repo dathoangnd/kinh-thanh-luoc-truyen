@@ -1,6 +1,8 @@
 ---
 title: Thiên Chúa sáng tạo trời đất
 description: Câu chuyện sáng tạo trong Kinh Thánh. Thiên Chúa tạo dựng trời đất, muôn loài và con người qua bảy ngày đầu tiên, mở đầu lịch sử nhân loại.
+redirect_from:
+  - /sang-the/01-thien-chua-sang-tao-troi-dat/
 ---
 
 Lúc khởi đầu Thiên Chúa sáng tạo trời đất.

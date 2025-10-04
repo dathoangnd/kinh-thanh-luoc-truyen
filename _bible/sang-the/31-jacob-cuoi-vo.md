@@ -1,6 +1,8 @@
 ---
 title: Jacob cưới vợ
 description: Jacob làm việc mười bốn năm để cưới Leah và Rachel. Câu chuyện thể hiện sự kiên nhẫn, tình yêu và những thử thách trong hành trình xây dựng gia đình của Jacob.
+redirect_from:
+  - /sang-the/29-jacob-cuoi-vo/
 ---
 
 Jacob tiếp tục lên đường về phía đông cho tới khi đến một khu dân cư. Ở đó, cậu thấy một cái giếng giữa đồng, có ba đàn chiên nằm nghỉ gần đó. Một hòn đá lớn đậy trên miệng giếng, và chỉ mở ra khi người chăn chiên tập hợp đàn lại cho chúng uống nước.

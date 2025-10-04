@@ -1,6 +1,8 @@
 ---
 title: Các con của Adam
 description: Chuyện về Cain và Abel, hai người con đầu tiên của Adam và Eve, cùng bi kịch đầu tiên của nhân loại khi Cain sát hại Abel, và sự ra đời của Seth thay thế cho Abel.
+redirect_from:
+  - /sang-the/04-cac-con-cua-adam/
 ---
 
 Adam ăn nằm với Eve vợ mình và bà có thai, sinh ra Cain. Bà nói: "Nhờ Thiên Chúa mà tôi đã có một đứa con trai". Bà cũng sinh thêm một người con trai khác là Abel.

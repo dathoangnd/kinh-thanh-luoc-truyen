@@ -1,6 +1,8 @@
 ---
 title: Israel qua đời
 description: Chương kể về những ngày cuối đời của Israel tại Ai Cập, lời trăn trối và chúc phúc cho các con, nghi lễ tang lễ trọng thể, và hành trình đưa ông về chôn cất tại Canaan theo di nguyện.
+redirect_from:
+  - /sang-the/46-israel-qua-doi/
 ---
 
 Ông Israel sống ở Ai Cập mười bảy năm, được một trăm bốn mươi bảy tuổi. Khi tới ngày gần chết, ông cho gọi Joseph và nói: "Nếu cha được ơn trước mặt con, thì con hãy đặt tay lên đùi cha, với lòng tử tế và trung tín, mà hứa rằng con sẽ không chôn cha ở Ai Cập. Khi cha qua đời, hãy đưa cha ra khỏi Ai Cập và chôn cha cùng với tổ phụ."

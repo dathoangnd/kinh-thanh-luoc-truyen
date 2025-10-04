@@ -1,6 +1,8 @@
 ---
 title: Con người trong vườn địa đàng
 description: Câu chuyện Kinh Thánh về vườn Eden, nơi Thiên Chúa tạo dựng con người, ban phước và thiết lập mối quan hệ đầu tiên giữa nam nữ, mở đầu lịch sử nhân loại.
+redirect_from:
+  - /sang-the/02-con-nguoi-trong-vuon-dia-dang/
 ---
 
 Thiên Chúa trồng một khu vườn ở phía đông, gọi là Eden. Ngài làm nó mọc lên nhiều cây cối đẹp mắt và có trái để ăn. Giữa vườn có cây sự sống, và cây biết điều thiện điều ác.

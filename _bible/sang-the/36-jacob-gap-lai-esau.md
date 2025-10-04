@@ -1,6 +1,8 @@
 ---
 title: Jacob gặp lại Esau
 description: Jacob gặp lại Esau sau nhiều năm xa cách, lo sợ và chuẩn bị lễ vật để làm nguôi lòng anh. Cuộc hội ngộ đầy cảm xúc, hai anh em hòa giải. Jacob được đổi tên thành Israel sau khi vật lộn với Thiên Chúa, và ông dựng bàn thờ tại vùng đất mới.
+redirect_from:
+  - /sang-the/33-jacob-gap-lai-esau/
 ---
 
 Israel nhìn lên và thấy Esau đến với bốn trăm người. Ông chia các con cho các bà vợ, đặt mẹ con hai bà vợ lẽ lên đầu, mẹ con Leah đứng sau, còn Leah và Joseph đứng sau chót. Ông đi lên đằng trước và sấp mình xuống đất bảy lần cho tới khi gần anh mình.

@@ -1,6 +1,8 @@
 ---
 title: Isaac và vua Abimelek
 description: Isaac đối mặt với thử thách khi sống giữa người Philistine, gặp vua Abimelek, trải qua xung đột về đất đai và nước, nhưng nhờ sự bảo vệ và ban phước của Thiên Chúa, ông giữ vững đức tin và được bình an.
+redirect_from:
+  - /sang-the/25-isaac-va-vua-abimelek/
 ---
 
 Bấy giờ trong xứ lại xảy ra nạn đói. Thiên Chúa hiện ra với Isaac và nói: "Chớ đi xuống Ai Cập mà hãy ở lại trong xứ này. Ta sẽ ở với ngươi và ban phước cho ngươi. Ta sẽ ban đất này do dòng dõi ngươi như Ta đã hứa với Abraham cha ngươi. Ta sẽ cho dòng dõi ngươi nhiều như sao trên trời, mọi dân tộc trên thế gian sẽ nhờ chúng mà được chúc phúc, vì Abraham đã vâng lời Ta."

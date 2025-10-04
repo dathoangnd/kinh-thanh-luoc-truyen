@@ -1,6 +1,8 @@
 ---
 title: Joseph bị bán sang Ai Cập
 description: Joseph bị các anh trai bán sang Ai Cập sau những giấc chiêm bao kỳ lạ, dẫn đến hành trình đầy thử thách và biến cố trong cuộc đời ông, mở đầu cho câu chuyện về sự cứu chuộc và đoàn tụ gia đình.
+redirect_from:
+  - /sang-the/38-joseph-bi-ban-sang-ai-cap/
 ---
 
 Trong các con trai của ông Israel, ông thương yêu Joseph hơn cả, vì ông sinh được cậu khi đã già, và ông may cho cậu một chiếc áo choàng rất đẹp. Joseph, khi đó mười bảy tuổi, thường chăn chiên cùng các anh mình, và thường mách cha chuyện xấu về các anh. Các anh cậu vì thế trở nên ghét cậu và không thể nói năng tử tế với cậu.

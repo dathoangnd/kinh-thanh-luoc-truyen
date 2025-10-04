@@ -1,6 +1,8 @@
 ---
 title: Abram chiến thắng bốn vua
 description: Abram dẫn đầu một đội quân nhỏ để giải cứu Lot, đánh bại liên minh bốn vua hùng mạnh, thể hiện lòng dũng cảm và đức tin vào Thiên Chúa.
+redirect_from:
+  - /sang-the/14-abram-chien-thang-bon-vua/
 ---
 
 Bấy giờ có năm vua trong xứ là vua thành Sodom, vua thành Gomorrah, vua thành Admah, vua thành Zeboyim, và vua thành Bela (về sau gọi là thành Zoar). Trong mười hai năm các vua này là chư hầu vua xứ Elam, nhưng tới năm thứ mười ba họ nổi loạn. Vì thế vua xứ Elam triệu tập thêm ba vua khác là các vua xứ Shinar, xứ Ellasar, xứ Goyim đi đánh năm vua kia.

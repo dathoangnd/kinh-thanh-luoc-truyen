@@ -1,6 +1,8 @@
 ---
 title: Abram ở Ai Cập
 description: Chương kể về hành trình của Abram đến Ai Cập, những thử thách ông gặp phải, và cách Thiên Chúa bảo vệ ông cùng gia đình giữa khó khăn nơi đất khách.
+redirect_from:
+  - /sang-the/12-abram-o-ai-cap/
 ---
 
 Bấy giờ, có nạn đói lớn trong xứ, Abram bèn đi tới Ai Cập mà kiều ngụ. Khi chuẩn bị vào Ai Cập, ông nói với vợ là bà Sarai: "Tôi biết bà là một người đàn bà đẹp. Khi dân Ai Cập trông thấy bà, họ sẽ giết tôi nhưng để cho bà sống. Vậy xin bà hãy nói bà là em gái tôi, để tôi được trọng đãi và giữ toàn mạng."

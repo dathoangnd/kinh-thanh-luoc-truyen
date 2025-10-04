@@ -1,6 +1,8 @@
 ---
 title: Sarah qua đời
 description: Sarah, vợ của Abraham, qua đời ở tuổi già sau một cuộc đời đầy biến động và đức tin. Abraham đau buồn, tìm mua mảnh đất để chôn cất Sarah.
+redirect_from:
+  - /sang-the/22-sarah-qua-doi/
 ---
 
 Sarah hưởng thọ được một trăm hai mươi bảy tuổi. Bà qua đời tại Kiriath Arba (về sau gọi là Hebron), thuộc xứ Canaan. Abraham đến chịu tang Sarah và than khóc bà.

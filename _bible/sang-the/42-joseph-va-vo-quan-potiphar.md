@@ -1,6 +1,8 @@
 ---
 title: Joseph và vợ quan Potiphar
 description: Joseph bị vợ quan Potiphar dụ dỗ nhưng kiên quyết từ chối, dẫn đến bị vu oan và bị tống vào tù. Dù vậy, Thiên Chúa vẫn ở bên Joseph, giúp cậu thành công và được tin tưởng trong ngục.
+redirect_from:
+  - /sang-the/39-joseph-va-vo-quan-potiphar/
 ---
 
 Joseph sống trong nhà ông chủ mình là Potiphar, chỉ huy thị vệ của Pharaoh. Thiên Chúa ở với Joseph nên cậu thành công trong mọi việc cậu làm. Vì vậy, ông Potiphar quý mến cậu, cho làm người quản gia, và giao cho cậu hết mọi việc trong nhà cùng tài sản của ông. Thiên Chúa ban phước cho ông Potiphar vì Joseph. Ông Potiphar giao cho Joseph mọi việc nên ông chẳng phải lo nghĩ gì, chỉ đến bữa là ăn.
