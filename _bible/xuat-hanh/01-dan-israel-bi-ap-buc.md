@@ -1,6 +1,8 @@
 ---
 title: Dân Israel bị áp bức
 description: Dân Israel bị áp bức tại Ai Cập dưới thời Pharaoh mới, phải lao động khổ cực và đối mặt với lệnh giết trẻ trai, nhưng vẫn sinh sôi mạnh mẽ nhờ sự bảo vệ của Thiên Chúa.
+redirect_from:
+  - /xuat-hanh/01-dan-israel-bi-dan-ap/
 ---
 
 Gia đình ông Israel xuống Ai Cập, tính cả Joseph và hai con trai, là bảy mươi người. Về sau, thế hệ đó đều qua đời, nhưng dân Israel sinh sôi thêm rất nhiều, trở nên cường thịnh và sống trong khắp xứ.

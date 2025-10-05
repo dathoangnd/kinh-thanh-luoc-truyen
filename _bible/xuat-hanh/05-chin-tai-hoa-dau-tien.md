@@ -1,6 +1,8 @@
 ---
 title: Chín tai họa đầu tiên
-description: 
+description: Thiên Chúa giáng chín tai họa đầu tiên lên Ai Cập qua Moses và Aaron, từ nước hóa thành máu đến bóng tối bao phủ, nhằm thuyết phục Pharaoh thả dân Israel nhưng vua vẫn cứng lòng không nghe.
+redirect_from:
+  - /xuat-hanh/05-chin-tai-hoa-dau-tien/
 ---
 
 Thiên Chúa phán với Moses: "Pharaoh đã cứng lòng và không cho dân Ta đi. Ngươi hãy đến với Pharaoh vào buổi sáng lúc hắn ra bờ sông Nile. Hãy lấy cây gây gậy đã biến ra con rắn, mà đập xuống sông Nile, nước sẽ hóa thành máu. Ngươi cũng hãy bảo Aaron lấy cây gậy mà giơ tay ra trên nước khắp xứ Ai Cập - từ sông suối, kênh rạch, ao hồ - và nước sẽ trở thành máu. Máu sẽ có ở khắp nơi trên đất Ai Cập, trong cả các bình gỗ và đá."

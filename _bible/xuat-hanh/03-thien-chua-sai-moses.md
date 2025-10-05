@@ -1,6 +1,8 @@
 ---
 title: Thiên Chúa sai Moses
 description: Moses được Thiên Chúa sai đến giải cứu dân Israel khỏi ách nô lệ Ai Cập, trải qua những dấu lạ và thử thách, khởi đầu hành trình vĩ đại dẫn dân tộc đến tự do.
+redirect_from:
+  - /xuat-hanh/03-thien-chua-sai-moses/
 ---
 
 Cách lâu sau, Pharaoh băng hà. Dân Israel than thở kêu van trong cảnh nô lệ, và tiếng kêu của họ thấu đến Thiên Chúa. Thiên Chúa nghe tiếng họ than van, và Người nhớ lại giao ước của Người với Abraham, Isaac và Israel. Thiên Chúa đoái xem dân Israel và thương xót họ.

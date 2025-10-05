@@ -1,6 +1,8 @@
 ---
 title: Moses ra đời
 description: Moses ra đời giữa thời kỳ dân Israel bị áp bức tại Ai Cập, được công chúa Pharaoh cứu và nuôi dưỡng, sau đó trưởng thành, bảo vệ công lý, và bắt đầu hành trình dẫn dắt dân tộc mình ra khỏi cảnh nô lệ.
+redirect_from:
+  - /xuat-hanh/02-moses-ra-doi/
 ---
 
 Có một người thuộc tộc Levi tên là Amram cưới một người con gái trong cùng tộc tên là Jochebed. Nàng sinh được con trai tên là Aaron và con gái tên là Miriam. Nàng lại sinh một con trai nữa đúng lúc Pharaoh ra lệnh tàn sát các trẻ trai Israel. Thấy đứa bé kháu khỉnh, nàng bèn giấu nó ba tháng. Khi biết không thể giấu lâu hơn nữa, nàng lấy một cái thúng cói và trát nhựa đường, đặt đứa trẻ vào đó rồi thả giữa bãi sậy cạnh bờ sông Nile. Chị đứa trẻ đứng cách đó một khoảng để xem chuyện gì sẽ xảy đến với em.

@@ -1,6 +1,8 @@
 ---
 title: Pharaoh khước từ
 description: Moses và Aaron đối mặt Pharaoh, truyền đạt mệnh lệnh của Thiên Chúa yêu cầu giải phóng dân Israel. Pharaoh cứng lòng, tăng áp bức, dẫn đến những dấu lạ đầu tiên và lời hứa giải cứu của Thiên Chúa dành cho dân Israel.
+redirect_from:
+  - /xuat-hanh/04-pharaoh-khuoc-tu/
 ---
 
 Moses và Aaron đi đến gặp Pharaoh mà nói: "Thiên Chúa của Israel đã phán rằng hãy để dân tôi đi để thờ phượng Ngài trong đồng vắng."
