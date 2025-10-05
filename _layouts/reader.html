@@ -3,8 +3,10 @@ layout: default
 ---
 
 {% for b in site.data.books %}
-  {% if page.url contains b.slug %}
+  {% assign book_slug = '/' | append: b.slug | append: '/' %}
+  {% if page.url contains book_slug %}
     {% assign book = b %}
+    {% break %}
   {% endif %}
 {% endfor %}
 
@@ -17,7 +19,7 @@ layout: default
 {% if chapter_index > 1 %}
   {% assign prev_index = chapter_index | minus: 2 %}
   {% assign prev_chapter = site.bible | slice: prev_index, 1 | first %}
-  {% if prev_chapter.url contains book.slug %}
+  {% if prev_chapter.url contains book_slug %}
     {% assign prev_url = prev_chapter.url %}
   {% endif %}
 {% endif %}
@@ -26,7 +28,7 @@ layout: default
 {% if chapter_index < chapter_size %}
   {% assign next_index = chapter_index %}
   {% assign next_chapter = site.bible | slice: next_index, 1 | first %}
-  {% if next_chapter.url contains book.slug %}
+  {% if next_chapter.url contains book_slug %}
     {% assign next_url = next_chapter.url %}
   {% endif %}
 {% endif %}
@@ -57,7 +59,7 @@ layout: default
     >
       {% assign chapter_counter = 1 %}
       {% for chapter in site.bible %}
-        {% if chapter.url contains book.slug %}
+        {% if chapter.url contains book_slug %}
           <option
             value="{{ chapter.url }}"
             {% if page.url == chapter.url %}selected{% endif %}

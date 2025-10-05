@@ -12,11 +12,12 @@ layout: default
 
   <div class="grid grid-cols-2 sm:grid-cols-3 gap-4">
     {% for book in site.data.books %}
+      {% assign book_slug = '/' | append: book.slug | append: '/' %}
       {% assign chapters = 0 %}
       {% assign firstChapterUrl = nil %}
 
       {% for chapter in site.bible %}
-        {% if chapter.url contains book.slug %}
+        {% if chapter.url contains book_slug %}
           {% assign chapters = chapters | plus: 1 %}
 
           {% unless firstChapterUrl %}
