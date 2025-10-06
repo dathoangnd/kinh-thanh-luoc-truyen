@@ -1,6 +1,8 @@
 ---
 title: Aaron qua đời
 description: Aaron được Thiên Chúa gọi về với tổ phụ trên núi Hor, Eleazar kế nhiệm chức tư tế, dân Israel than khóc Aaron ba mươi ngày.
+redirect_from:
+  - /xuat-hanh/27-aaron-qua-doi/
 ---
 
 Dân Israel rời khỏi Kadesh để đến núi Hor, gần biên giới Edom.

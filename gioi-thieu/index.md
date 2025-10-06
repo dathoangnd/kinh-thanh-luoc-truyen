@@ -1,7 +1,9 @@
 ---
 layout: page
 title: Giới thiệu
-description: 
+description: Giới thiệu Kinh Thánh Lược Truyện, dự án dịch lại Kinh Thánh bằng ngôn ngữ gần gũi và sắp xếp theo dòng thời gian để người mới dễ tiếp cận.
+redirect_from:
+  - /gioi-thieu.html
 ---
 
 Chào mừng bạn đã ghé thăm Kinh Thánh Lược Truyện.
@@ -16,7 +18,7 @@ Từ trải nghiệm đó, tôi bắt đầu dự án này. Ý tưởng rất đ
 •	Sắp xếp lại theo dòng thời gian, để mạch truyện liền lạc hơn.  
 	•	Lược bỏ những phần trùng lặp, để người đọc tập trung vào phần chính yếu.
 
-Tôi cũng xin nói rõ: có những phần trong Kinh Thánh như luật pháp, thơ ca, thư từ - vốn là những phần quan trọng - nhưng tôi chủ động không đưa vào trong bản "lược truyện" này. Lý do là vì chúng không trực tiếp nằm trong mạch truyện chính, mà thường phản ánh bối cảnh xã hội, đời sống tôn giáo, hoặc tâm tình cá nhân ở từng giai đoạn lịch sử. Những phần đó đòi hỏi sự tìm hiểu và suy ngẫm riêng, mà nếu đưa hết vào thì sẽ làm người đọc bị ngắt quãng và khó theo dõi dòng chảy của câu chuyện lớn.
+Tôi cũng xin nói rõ: có những phần trong Kinh Thánh như luật pháp, thơ ca, tiên tri, thư từ - vốn là những phần quan trọng - nhưng tôi chủ động không đưa vào trong bản "lược truyện" này. Lý do là vì chúng không trực tiếp nằm trong mạch truyện chính, mà thường phản ánh bối cảnh xã hội, đời sống tôn giáo, hoặc tâm tình cá nhân ở từng giai đoạn lịch sử. Những phần đó đòi hỏi sự tìm hiểu và suy ngẫm riêng, mà nếu đưa hết vào thì sẽ làm người đọc bị ngắt quãng và khó theo dõi dòng chảy của câu chuyện lớn.
 
 Mục tiêu của bản lược truyện này không phải thay thế Kinh Thánh gốc, mà là mở ra một con đường dễ đi hơn cho người mới. Khi đã quen, người đọc hoàn toàn có thể (và nên) quay lại tìm hiểu các bản dịch đầy đủ, để cảm nhận hết chiều sâu và sự phong phú của Kinh Thánh.
 

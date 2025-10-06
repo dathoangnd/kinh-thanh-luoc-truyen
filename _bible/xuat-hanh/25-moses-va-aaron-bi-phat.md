@@ -1,6 +1,8 @@
 ---
 title: Moses và Aaron bị phạt
 description: Dân Israel nổi loạn vì thiếu nước tại hoang mạc Zin. Moses đập vào tảng đá khiến nước tuôn ra, nhưng vì không tôn vinh Thiên Chúa, Moses và Aaron bị cấm vào Đất Hứa.
+redirect_from:
+  - /xuat-hanh/25-moses-va-aaron-bi-phat/
 ---
 
 Vào tháng thứ nhất của năm thứ bốn mươi kể từ khi ra khỏi Ai Cập, dân Israel trở lại hoang mạc Zin, và sống tại Kadesh. Miriam qua đời tại đó và được chôn cất.

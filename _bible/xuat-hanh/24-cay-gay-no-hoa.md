@@ -1,6 +1,8 @@
 ---
 title: Cây gậy nở hoa
 description: Moses lấy mười hai cây gậy của các thủ lĩnh Israel, cùng cây gậy của Aaron, đặt trong Đền Tạm. Cây gậy của Aaron nở hoa, xác nhận sự chọn lựa của Thiên Chúa và chấm dứt sự phàn nàn của dân chúng.
+redirect_from:
+  - /xuat-hanh/24-cay-gay-no-hoa/
 ---
 
 Thiên Chúa phán với Moses: "Nói với dân Israel là hãy lấy mười hai cây gậy từ các thủ lĩnh của mười hai chi tộc. Viết tên của từng người trên mỗi cây gậy. Trên cây gậy của tộc Levi thì viết tên Aaron. Đặt chúng trong Đền Tạm, trước Hòm Giao Ước, nơi Ta sẽ gặp ngươi. Cây gậy của người Ta chọn sẽ đâm chồi, và Ta sẽ chấm dứt sự phàn nàn của dân với ngươi."

@@ -1,6 +1,8 @@
 ---
 title: Bảy mươi trưởng lão
 description: Dân Israel than trách trên đường, bảy mươi trưởng lão được nhận thần khí, chim cút được ban cho dân, và hình phạt vì lòng tham ăn.
+redirect_from:
+  - /xuat-hanh/20-bay-muoi-truong-lao/
 ---
 
 Bấy giờ dân chúng than trách về nỗi khó nhọc trên đường. Thiên Chúa nghe biết, và cơn thịnh nộ của Ngài bừng lên. Lửa của Thiên Chúa nổi lên giữa họ và đốt cháy vài đoạn hàng rào quanh trại. Dân chúng kêu lên Moses, ông cầu xin Thiên Chúa thì lửa bị dập tắt. Nơi đó được gọi là Taberah, nghĩa là nơi bốc cháy.

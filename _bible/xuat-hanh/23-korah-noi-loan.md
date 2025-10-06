@@ -1,6 +1,8 @@
 ---
 title: Korah nổi loạn
 description: Korah, Dathan, Abiram cùng 250 thủ lĩnh nổi loạn chống lại Moses và Aaron, dẫn đến hình phạt nghiêm khắc từ Thiên Chúa. Bài học về sự vâng phục và thánh chức trong dân Chúa.
+redirect_from:
+  - /xuat-hanh/23-korah-noi-loan/
 ---
 
 Korah thuộc chi tộc Levi, cùng vài người thuộc chi tộc Reuben là Dathan, Abiram và On trở nên chống đối với Moses. Họ cùng với hai trăm năm mươi người khác, vốn là những thủ lĩnh trong dân hiệp nhau chống lại Moses và Aaron mà nói: "Các ông đã đi quá xa rồi! Cả cộng đồng dân này là dân thánh, và Thiên Chúa ở với họ. Sao các ông lại tự đặt mình lên trên họ?"

@@ -1,6 +1,8 @@
 ---
 title: Rời khỏi núi Sinai
 description: Dân Israel rời khỏi núi Sinai theo từng chi tộc, khởi đầu hành trình mới trong hoang mạc dưới sự dẫn dắt của Thiên Chúa.
+redirect_from:
+  - /xuat-hanh/19-roi-khoi-nui-sinai/
 ---
 
 Vào ngày thứ hai mươi của tháng thứ hai, năm thứ hai, cột mây bay lên khỏi Đền Tạm. Dân Israel rời hoang mạc Sinai, đi từ chặng này tới chặng kia.
