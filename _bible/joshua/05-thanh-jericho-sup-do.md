@@ -5,7 +5,7 @@ description: Theo lệnh Thiên Chúa, quân Israel đi quanh thành Jericho tro
 
 Bấy giờ, các vua Amorit ở phía tây sông Jordan và các vua Canaan ở ven biển nghe biết việc Thiên Chúa ngăn sông Jordan cho dân Israel vượt qua, họ kinh hãi và sợ không dám đối đầu Israel. Cổng thành Jericho đóng kín, không ai dám đi ra hay đi vào.
 
-Ở gần Jericho, Joshua nhìn lên và thấy một người đàn ông trước mặt với gươm trần trong tay. Ông lại gần và nói: "Ông là người của tôi hay của quân địch?"
+Ở gần Jericho, Joshua nhìn lên và thấy một người đàn ông trước mặt với gươm trần trong tay. Ông lại gần và nói: "Ông là người của chúng tôi hay của quân địch?"
 
 Người đó đáp: "Không phải, Ta đến để lãnh đạo đội quân của Thiên Chúa."
 
