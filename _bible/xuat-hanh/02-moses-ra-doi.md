@@ -13,7 +13,7 @@ Chị đứa bé lại thưa với công chúa: "Bà có muốn con đi tìm m�
 
 Công chúa đáp: "Được, hãy đi đi."
 
-Vậy, chị đứa bé đi tìm mẹ mình. Công chúa nói với mẹ đứa trẻ: "Hãy nuôi dưỡng đứa trẻ này cho ta, ta sẽ trả công cho."
+Chị đứa bé bèn đi tìm mẹ mình. Công chúa nói với mẹ đứa trẻ: "Hãy nuôi dưỡng đứa trẻ này cho ta, ta sẽ trả công cho."
 
 Vậy người đàn bà nhận lấy đứa trẻ và nuôi dưỡng. Khi đứa trẻ lớn lên, bà đưa đến cho công chúa và nàng nhận làm con nuôi. Công chúa đặt tên đứa trẻ là Moses, nghĩa là kéo ra khỏi nước.
 
@@ -29,7 +29,7 @@ Khi Pharaoh hay biết việc đó, bèn tìm cách giết Moses. Nhưng Moses �
 
 Khi các người con gái về nhà, cha họ hỏi: "Sao hôm nay các con về sớm thế?"
 
-Họ đáp: "Có một người Ai Cập cứu chúng con khỏi bọn chăn chiên. Người ấy còn lấy giúp nước giúp chúng cho và cho bầy chiên uống nước nữa."
+Họ đáp: "Có một người Ai Cập cứu chúng con khỏi bọn chăn chiên. Người ấy còn giúp chúng con lấy nước và cho bầy chiên uống nước nữa."
 
 Cha họ đáp: "Người ấy đâu rồi? Sao còn để họ lại? Mời người ấy đến nhà để ăn uống gì đó chứ."
 
