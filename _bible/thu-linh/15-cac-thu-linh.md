@@ -15,4 +15,4 @@ Khi nghe những lời đó, dân chúng kêu khóc. Họ đặt tên cho nơi �
 
 Các chi tộc Israel không đánh đuổi được hết dân Canaan, Hittite, Amorit, Perizzi, Hivvi, Jebusite ra khỏi xứ, nên những dân đó vẫn sống giữa Israel. Dân Israel lấy con gái của dân ngoại, gả con gái mình cho con trai dân ngoại, và thờ các thần của chúng. Thiên Chúa phó họ vào tay thù địch, để chúng cướp phá họ mà họ không thể chống lại. Mỗi khi Israel ra trận, Thiên Chúa không ở với họ, và họ thất bại. Israel ở trong tình cảnh nguy nan.
 
-Nhưng Thiên Chúa không bỏ rơi họ mà dùng các thủ lĩnh để cứu họ ra khỏi tay quân thù. Nhưng khi các thủ lĩnh chết đi, dân Israel lại quay lưng với Thiên Chúa và còn trở nên đồi bại hơn trước. Họ cứng đầu, không muốn rời bỏ con đường tội lỗi của mình.
+Nhưng Thiên Chúa không bỏ rơi họ mà dùng các thủ lĩnh để cứu họ ra khỏi tay quân thù. Khi các thủ lĩnh chết đi, dân Israel lại quay lưng với Thiên Chúa và còn trở nên đồi bại hơn trước. Họ cứng đầu, không muốn rời bỏ con đường tội lỗi của mình.
