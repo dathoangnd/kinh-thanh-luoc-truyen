@@ -7,6 +7,6 @@ Sau khi chiến thắng dân Midian, Thiên Chúa phán với Moses: "Ngươi v�
 
 Quân Israel đã thu được tổng cộng 675,000 con chiên, 72,000 con bò, 61,000 con lừa và 32,000 người nữ còn trinh nguyên. Moses và Eleazar đem chia cho những người ra trận, dân chúng, dâng một phần cho Đền Tạm và người Levi, như lời Thiên Chúa phán dạy. 
 
-Những người chỉ huy quân đội, đứng đầu mỗi hàng nghìn hoặc hàng trăm, đến thưa với Moses: "Các tôi tớ ngài đã chia chiến lợi phẩm cho binh lính cả rồi, không còn sót ai. Chúng tôi mang đến đây những đồ vàng dâng lên Thiên Chúa để chuộc tội cho chúng tôi trước nhan Người."
+Những người chỉ huy quân đội, đứng đầu mỗi hàng ngàn hoặc hàng trăm, đến thưa với Moses: "Các tôi tớ ngài đã chia chiến lợi phẩm cho binh lính cả rồi, không còn sót ai. Chúng tôi mang đến đây những đồ vàng dâng lên Thiên Chúa để chuộc tội cho chúng tôi trước nhan Người."
 
 Moses và Eleazar nhận các đồ vàng, gồm có vòng tay, nhẫn, khuyên tai, vòng cổ. Tổng số vàng những người chỉ huy dâng là 16,750 shekel. Moses và Eleazar đưa số vàng vào trong Đền Tạm mà dâng lên Thiên Chúa.

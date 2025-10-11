@@ -7,7 +7,7 @@ Từ khi vào xứ Canaan, dân Israel đã phụng sự Thiên Chúa trong đ�
 
 Nhưng khi thế hệ đó qua đi, một thế hệ dân mới không biết đến Thiên Chúa và những việc Người đã làm cho Israel. Họ rời bỏ Thiên Chúa của cha ông họ, Đấng đã đem họ ra khỏi Ai Cập, để thờ các thần của dân ngoại là Baal, Ashtoreth và Asherah.
 
-Thiên Chúa nổi giận với Israel và phán: "Vì chúng đã phá vỡ giao ước Ta đã lập với tổ tiên chúng và không nghe Ta, Ta sẽ không đuổi những dân khác khỏi chúng nữa. Ta sẽ dùng quân thù để thử Israel xem chúng có theo đường lối Thiên Chúa như tổ tiên chúng hay không."
+Thiên Chúa nổi giận với Israel và phán: "Vì chúng đã phá vỡ giao ước Ta đã lập với tổ phụ chúng và không nghe Ta, Ta sẽ không đuổi những dân khác khỏi chúng nữa. Ta sẽ dùng quân thù để thử Israel xem chúng có theo đường lối Thiên Chúa như tổ phụ chúng hay không."
 
 Thiên sứ của Thiên Chúa từ Gilgal tới nói với dân Israel: "Ta đã đưa các ngươi ra khỏi Ai Cập và dẫn các ngươi vào đất Ta đã thề cho tổ phụ các ngươi. Ta đã dặn các ngươi không được lập giao ước với dân trong xứ, nhưng phải đập nát bàn thờ của chúng. Vậy mà các ngươi không vâng lời Ta. Vì thế, Ta sẽ không đuổi chúng ra khỏi giữa các ngươi, thần của chúng sẽ là cạm bẫy cho các ngươi."
 

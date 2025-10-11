@@ -5,9 +5,9 @@ description: Dưới lệnh của Thiên Chúa, Moses cho quân Israel đi trả
 
 Thiên Chúa phán với Moses: "Hãy trả thù người Midian cho Israel. Sau đó, ngươi sẽ được về với tổ phụ."
 
-Moses truyền cho dân: "Hãy chuẩn bị đi đánh người Midian để báo thù cho Thiên Chúa. Mỗi chi tộc hãy chọn ra một nghìn người đàn ông."
+Moses truyền cho dân: "Hãy chuẩn bị đi đánh người Midian để báo thù cho Thiên Chúa. Mỗi chi tộc hãy chọn ra một ngàn người đàn ông."
 
-Vậy mười hai nghìn người từ các chi tộc được vũ trang để ra trận. Tư tế Phinehas đi cùng với họ, mang theo các đồ thánh và kèn để ra hiệu.
+Vậy mười hai ngàn người từ các chi tộc được vũ trang để ra trận. Tư tế Phinehas đi cùng với họ, mang theo các đồ thánh và kèn để ra hiệu.
 
 Họ đi đánh người Midian, như lệnh Thiên Chúa phán bảo Moses, và giết hết mọi đàn ông, kể cả năm tộc trưởng xứ Midian là Evi, Rekem, Zur, Hur và Reba. Họ cũng giết cả Balaam bằng gươm. Quân Israel bắt đàn bà, trẻ con, súc vật, của cải làm chiến lợi phẩm. Họ đốt các thành và trại của dân Midian. Họ đem những người và chiến lợi phẩm thu được tới cho Moses và tư tế Eleazar cùng toàn thể dân Israel ở trại.
 

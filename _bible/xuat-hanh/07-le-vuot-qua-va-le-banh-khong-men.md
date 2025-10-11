@@ -13,7 +13,7 @@ Moses nói lại với các trưởng lão trong Israel: "Hãy tuân giữ nhữ
 
 Thiên Chúa không dẫn họ trên đường qua xứ Philistine, mặc cho đường đó gần hơn. Vì Thiên Chúa nghĩ rằng nếu có chiến tranh xảy ra, dân có thể sợ hãi mà trở về Ai Cập. Vậy Thiên Chúa dẫn dân đi vòng qua hoang mạc theo hướng tới Biển Đỏ.
 
-Dân Israel đi bộ từ Rameses tới Sukkoth. Có tất cả sáu trăm nghìn đàn ông, chưa kể đàn bà và trẻ con. Có nhiều người thuộc dân ngoại cũng đi với họ, và có các đàn chiên dê đông đúc nữa. Dân Israel lấy bột mang từ Ai Cập mà làm bánh không men, vì họ bị đuổi khỏi Ai Cập nên chưa kịp chuẩn bị đồ ăn.
+Dân Israel đi bộ từ Rameses tới Sukkoth. Có tất cả sáu trăm ngàn người đàn ông, chưa kể đàn bà và trẻ con. Có nhiều người thuộc dân ngoại cũng đi với họ, và có các đàn chiên dê đông đúc nữa. Dân Israel lấy bột mang từ Ai Cập mà làm bánh không men, vì họ bị đuổi khỏi Ai Cập nên chưa kịp chuẩn bị đồ ăn.
 
 Thiên Chúa phán với Moses: "Các ngươi cũng hãy giữ lễ Bánh Không Men, vì trong những ngày này Ta đã đưa các ngươi ra khỏi Ai Cập. Trong bảy ngày, từ buổi tối ngày thứ mười bốn tới buổi tối ngày thứ hai mươi mốt của tháng thứ nhất, các ngươi phải ăn bánh không men. Ai ăn bánh có men trong bảy ngày này, dù là người ngoại kiều hay trong dân, sẽ bị đuổi ra khỏi Israel. Hãy tổ chức một lễ thánh vào ngày thứ nhất và ngày thứ bảy. Đừng làm việc trong những ngày này, trừ việc chuẩn bị đồ ăn cho các ngươi. Đừng ăn bánh có men, mà phải ăn bánh không men, dù các ngươi ở đâu đi chăng nữa.""
 
