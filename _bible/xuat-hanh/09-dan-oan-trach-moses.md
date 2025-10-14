@@ -49,4 +49,4 @@ Moses kêu lên Thiên Chúa: "Con phải làm gì cho dân bây giờ? Họ đ�
 
 Thiên Chúa phán bảo Moses: "Hãy đi trước dân chúng. Đem theo mấy trưởng lão trong Israel và cầm cây gậy đã đánh nước sông Nile nơi tay. Ta sẽ đứng trước ngươi bên cạnh tảng đá ở Sinai. Đập vào tảng đá, nước sẽ tuôn ra cho dân uống."
 
-Moses làm điều này trước mặt những trưởng lão trong Israel. Ông đặt tên nơi đó là Meribah - nghĩa là tranh cãi, và Massah - nghĩa là thử thách, vì dân chúng đã tranh cãi với ông và thử thách Thiên Chúa.
+Moses làm điều này trước mặt những trưởng lão trong Israel. Ông đặt tên nơi đó là Meribah - nghĩa là "Tranh cãi", và Massah - nghĩa là "Thử thách", vì dân chúng đã tranh cãi với ông và thử thách Thiên Chúa.

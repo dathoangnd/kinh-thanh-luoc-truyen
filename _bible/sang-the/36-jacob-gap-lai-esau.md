@@ -33,4 +33,4 @@ Israel đáp: "Làm vậy để làm gì? Em chỉ mong được đẹp lòng an
 
 Hôm đó, Esau trở về Seir. Dòng dõi Esau về sau trở thành các thủ lĩnh bộ lạc, rồi trở thành vương quốc Edom với các vua trị vì.
 
-Israel dừng lại đóng trại tại Sukkoth. Sau đó, ông tới thành của Shechem, con ông Hamor trong xứ Canaan. Ở đó, ông bỏ ra một trăm miếng bạc tậu một mảnh đất của các anh em ông Shechem và dựng trại. Israel dựng một bàn thờ tại đó, đặt tên là El Elohe Israel, nghĩa là Thiên Chúa của Israel.
+Israel dừng lại đóng trại tại Sukkoth. Sau đó, ông tới thành của Shechem, con ông Hamor trong xứ Canaan. Ở đó, ông bỏ ra một trăm miếng bạc tậu một mảnh đất của các anh em ông Shechem và dựng trại. Israel dựng một bàn thờ tại đó, đặt tên là El Elohe Israel, nghĩa là "Thiên Chúa của Israel".

@@ -7,7 +7,7 @@ Khi vua thành Arad, sống ở Negev, hay tin dân Israel đang đi theo con đ
 
 Dân Israel xin với Thiên Chúa: "Nếu Người phó dân này vào tay chúng con, chúng con sẽ phá hủy thành của chúng."
 
-Thiên Chúa nhận lời họ cầu xin. Quân Israel chiến thắng quân Arad và phá hủy thành. Nơi đó về sau được gọi là Hormah, nghĩa là tận diệt.
+Thiên Chúa nhận lời họ cầu xin. Quân Israel chiến thắng quân Arad và phá hủy thành. Nơi đó về sau được gọi là Hormah, nghĩa là "Tận diệt".
 
 Dân Israel đi tiếp và đóng trại tại Oboth, rồi rời đi và đóng trại tại Abarim, trong hoang mạc đối diện với đất dân Moab về phía đông. Từ đó họ lại đến thung lũng Zered rồi đóng trại dọc theo sông Arnon. Sông Arnon nằm trong đồng vắng, chảy dài tới bờ cõi dân Amorit, là biên giới giữa dân Amorit và dân Moab. 
 

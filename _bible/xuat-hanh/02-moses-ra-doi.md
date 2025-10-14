@@ -15,7 +15,7 @@ Công chúa đáp: "Được, hãy đi đi."
 
 Chị đứa bé bèn đi tìm mẹ mình. Công chúa nói với mẹ đứa trẻ: "Hãy nuôi dưỡng đứa trẻ này cho ta, ta sẽ trả công cho."
 
-Vậy người đàn bà nhận lấy đứa trẻ và nuôi dưỡng. Khi đứa trẻ lớn lên, bà đưa đến cho công chúa và nàng nhận làm con nuôi. Công chúa đặt tên đứa trẻ là Moses, nghĩa là kéo ra khỏi nước.
+Vậy người đàn bà nhận lấy đứa trẻ và nuôi dưỡng. Khi đứa trẻ lớn lên, bà đưa đến cho công chúa và nàng nhận làm con nuôi. Công chúa đặt tên đứa trẻ là Moses, nghĩa là "Kéo ra khỏi nước".
 
 Moses khôn lớn thêm và trưởng thành. Một ngày, cậu ra ngoài thăm anh em mình, để xem công việc nhọc nhằn mà họ phải làm. Cậu thấy một người Ai Cập đang đánh một người Israel. Khi thấy không có ai, cậu liền giết người Ai Cập và vùi hắn xuống đất.
 
@@ -33,4 +33,4 @@ Họ đáp: "Có một người Ai Cập cứu chúng con khỏi bọn chăn chi
 
 Cha họ đáp: "Người ấy đâu rồi? Sao còn để họ lại? Mời người ấy đến nhà để ăn uống gì đó chứ."
 
-Moses đồng ý lại nhà ông Jethro và ở tại đó. Ông Jethro gả con gái Zipporah cho Moses. Zipporah sinh một con trai, Moses đặt tên đứa trẻ là Gershom, nghĩa là người khách lạ, mà nói: "Tôi đã thành ngoại kiều trong xứ xa lạ."
+Moses đồng ý lại nhà ông Jethro và ở tại đó. Ông Jethro gả con gái Zipporah cho Moses. Zipporah sinh một con trai, Moses đặt tên đứa trẻ là Gershom, nghĩa là "Người khách lạ", mà nói: "Tôi đã thành ngoại kiều trong xứ xa lạ."

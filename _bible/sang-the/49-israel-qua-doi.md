@@ -49,6 +49,6 @@ Pharaoh nói với ông: "Cứ đi lên mà chôn cha ngươi như ông đã b�
 
 Vậy Joseph đưa xác cha mình về Canaan để đi chôn. Tất cả triều thần Pharaoh đều đi theo, từ các trường lão trong đền thờ và trong xứ, cùng mọi người trong nhà Joseph, các anh em và họ hàng trong nhà cha mình. Chỉ có lũ trẻ và các đàn vật là còn ở lại Goshen. Nhiều xe và ngựa cũng đi theo. Đó là một đám tang rất lớn.
 
-Khi đến sân đập lúa của Atad, gần sông Jordan, Joseph lại để tang cha trong bảy ngày, và họ khóc rất lớn và thảm thiết. Người Canaan ở đó nghe tiếng khóc thì bảo nhau đó là lễ khóc than trọng thể của dân Ai Cập. Vì thế nơi đó được gọi là Abel Mizraim, nghĩa là sự than khóc của người Ai Cập.
+Khi đến sân đập lúa của Atad, gần sông Jordan, Joseph lại để tang cha trong bảy ngày, và họ khóc rất lớn và thảm thiết. Người Canaan ở đó nghe tiếng khóc thì bảo nhau đó là lễ khóc than trọng thể của dân Ai Cập. Vì thế nơi đó được gọi là Abel Mizraim, nghĩa là "Sự than khóc của người Ai Cập".
 
 Các con trai của ông Israel đã làm như lời ông dặn, đưa ông về Canaan và chôn trong hang đá trong cánh đồng Machpelah, mà ông Abraham đã mua lại từ Ephron người Hittite. Sau khi chôn cha, Joseph trở về Ai Cập cùng với anh em và tất cả những người khác đi theo.

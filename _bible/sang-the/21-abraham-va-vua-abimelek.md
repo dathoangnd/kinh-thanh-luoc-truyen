@@ -35,6 +35,6 @@ Abraham phàn nàn với vua Abimelek về cái giếng mà đầy tớ vua đã
 
 Abraham bắt bảy con chiên non dâng vua Abimelek. Ông nói: "Xin vua hãy nhận bảy con chiên này để làm chứng là tôi đã đào cái giếng này."
 
-Nơi đó về sau được gọi là Beersheba, nghĩa là giếng của lời thề, vì hai người đã thề tại đó.
+Nơi đó về sau được gọi là Beersheba, nghĩa là "Giếng của lời thề", vì hai người đã thề tại đó.
 
 Sau khi kết ước, vua Abimelek và quan tổng binh Phicol trở về đất Philistine. Abraham trồng một cây liễu tây tại Beersheba, và kêu cầu danh Thiên Chúa. Abraham sống trong xứ đó trong một thời gian dài.

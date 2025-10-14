@@ -27,4 +27,4 @@ Bấy giờ, cả thiên hạ đều có chung một thứ tiếng. Khi dời qu
 
 Thiên Chúa ngự xuống để xem thành phố và cái tháp loài người đang xây. Thiên Chúa phán: "Nếu chỉ có một dân cùng một thứ tiếng mà chúng đã làm thế này, thì chẳng có gì chúng định làm mà không thể. Chúng Ta hãy xuống và làm lộn xộn tiếng nói của chúng để không ai hiểu ai nữa."
 
-Vậy Thiên Chúa làm lộn xộn tiếng nói loài người và họ phải tản mác khắp mặt đất, thôi không xây dựng thành đó nữa. Vì thế thành đó được gọi là Babel, nghĩa là sự xáo trộn.
+Vậy Thiên Chúa làm lộn xộn tiếng nói loài người và họ phải tản mác khắp mặt đất, thôi không xây dựng thành đó nữa. Vì thế thành đó được gọi là Babel, nghĩa là "Sự xáo trộn".

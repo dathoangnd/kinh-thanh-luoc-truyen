@@ -11,7 +11,7 @@ Thiên Chúa nổi giận với Israel và phán: "Vì chúng đã phá vỡ gia
 
 Thiên sứ của Thiên Chúa từ Gilgal tới nói với dân Israel: "Ta đã đưa các ngươi ra khỏi Ai Cập và dẫn các ngươi vào đất Ta đã thề cho tổ phụ các ngươi. Ta đã dặn các ngươi không được lập giao ước với dân trong xứ, nhưng phải đập nát bàn thờ của chúng. Vậy mà các ngươi không vâng lời Ta. Vì thế, Ta sẽ không đuổi chúng ra khỏi giữa các ngươi, thần của chúng sẽ là cạm bẫy cho các ngươi."
 
-Khi nghe những lời đó, dân chúng kêu khóc. Họ đặt tên cho nơi đó là Bokim, nghĩa là người than khóc.
+Khi nghe những lời đó, dân chúng kêu khóc. Họ đặt tên cho nơi đó là Bokim, nghĩa là "Người than khóc".
 
 Các chi tộc Israel không đánh đuổi được hết dân Canaan, Hittite, Amorit, Perizzi, Hivvi, Jebusite ra khỏi xứ, nên những dân đó vẫn sống giữa Israel. Dân Israel lấy con gái của dân ngoại, gả con gái mình cho con trai dân ngoại, và thờ các thần của chúng. Thiên Chúa phó họ vào tay thù địch, để chúng cướp phá họ mà họ không thể chống lại. Mỗi khi Israel ra trận, Thiên Chúa không ở với họ, và họ thất bại. Israel ở trong tình cảnh nguy nan.
 

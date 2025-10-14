@@ -25,4 +25,4 @@ Jacob thức giấc, hoảng sợ và nghĩ rằng: "Thật có Thiên Chúa ở
 
 Cậu dậy sớm, lấy hòn đá dưới đầu dựng lên thành trụ và tưới rượu cùng dầu lên. Jacob thề rằng: "Nếu Thiên Chúa ở với con trong chuyến đi này, cho con bánh ăn áo mặc, và nếu con trở về nhà cha con bình an, thì Người sẽ là Thiên Chúa của con. Hòn đá này sẽ là nhà của Chúa, và con sẽ dâng lên Ngài một phần mười của cải Ngài ban cho con."
 
-Nơi đó vốn gọi là Luz, nhưng Jacob đổi tên thành Bethel, nghĩa là nhà của Thiên Chúa.
+Nơi đó vốn gọi là Luz, nhưng Jacob đổi tên thành Bethel, nghĩa là "Nhà của Thiên Chúa".

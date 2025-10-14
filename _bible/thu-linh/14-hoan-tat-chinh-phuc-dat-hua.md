@@ -21,7 +21,7 @@ Caleb nói: "Ta sẽ gả con gái ta Aksah cho ai chiếm được Debir."
 
 Othniel con trai của Kenaz, gọi Calab là bác, đã chiếm được thành. Calab bèn gả Aksah cho cậu làm vợ.
 
-Quân Judah và Simeon lại tấn công người Canaan ở Zephath, và phá hủy thành. Vì thế nơi đó được đổi tên thành Hormah, nghĩa là tận diệt. Họ cũng chiếm được thêm các thành Gaza, Ashkelon và Ekron.
+Quân Judah và Simeon lại tấn công người Canaan ở Zephath, và phá hủy thành. Vì thế nơi đó được đổi tên thành Hormah, nghĩa là "Tận diệt". Họ cũng chiếm được thêm các thành Gaza, Ashkelon và Ekron.
 
 ---
 

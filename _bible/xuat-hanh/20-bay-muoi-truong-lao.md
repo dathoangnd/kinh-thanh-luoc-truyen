@@ -5,7 +5,7 @@ redirect_from:
   - /xuat-hanh/20-bay-muoi-truong-lao/
 ---
 
-Bấy giờ dân chúng than trách về nỗi khó nhọc trên đường. Thiên Chúa nghe biết, và cơn thịnh nộ của Ngài bừng lên. Lửa của Thiên Chúa nổi lên giữa họ và đốt cháy vài đoạn hàng rào quanh trại. Dân chúng kêu lên Moses, ông cầu xin Thiên Chúa thì lửa bị dập tắt. Nơi đó được gọi là Taberah, nghĩa là nơi bốc cháy.
+Bấy giờ dân chúng than trách về nỗi khó nhọc trên đường. Thiên Chúa nghe biết, và cơn thịnh nộ của Ngài bừng lên. Lửa của Thiên Chúa nổi lên giữa họ và đốt cháy vài đoạn hàng rào quanh trại. Dân chúng kêu lên Moses, ông cầu xin Thiên Chúa thì lửa bị dập tắt. Nơi đó được gọi là Taberah, nghĩa là "Nơi bốc cháy".
 
 Bọn dân chúng lại than khóc mà nói rằng: "Giá như chúng tôi có thịt ăn. Chúng tôi nhớ lại ở Ai Cập có cá ăn, dưa chuột, dưa gang, củ kiệu, hành, tỏi. Nhưng giờ chúng tôi không có gì hết, chỉ có manna!"
 
@@ -25,6 +25,6 @@ Rồi Moses và các trưởng lão trở về trại mình.
 
 Thiên Chúa phán với Moses: "Các ngươi hãy dọn mình để chuẩn bị. Ngày mai các ngươi sẽ được ăn thịt. Ta đã nghe tiếng các ngươi than vãn, và Ta sẽ cho các ngươi thịt để ăn, không chỉ một hai ngày, mà cả tháng, cho tới khi thịt lòi ra từ lỗ mũi và các ngươi ghê sợ nó. Vì các ngươi đã kêu trách Ta, Đấng ngự giữa các ngươi."
 
-Hôm sau, có trận gió của Thiên Chúa thổi chim cút vào từ biển. Chúng đậu kín dày tới hai cubit, trải dài cả một ngày đường theo bất kì hướng nào. Cả ngày cả đêm hôm đó và những ngày sau mọi người ra để bắt chim cút. Không ai bắt ít hơn mười homer. Họ buộc chúng khắp xung quanh trại. Nhưng trong lúc thịt còn ở giữa kẽ răng và chưa nuốt, thì cơn giận của Thiên Chúa bừng lên và Người đánh phạt họ bằng bệnh dịch rất nặng. Nơi đó về sau được gọi là Kibroth Hattaavah, nghĩa là mồ chôn sự tham ăn.
+Hôm sau, có trận gió của Thiên Chúa thổi chim cút vào từ biển. Chúng đậu kín dày tới hai cubit, trải dài cả một ngày đường theo bất kì hướng nào. Cả ngày cả đêm hôm đó và những ngày sau mọi người ra để bắt chim cút. Không ai bắt ít hơn mười homer. Họ buộc chúng khắp xung quanh trại. Nhưng trong lúc thịt còn ở giữa kẽ răng và chưa nuốt, thì cơn giận của Thiên Chúa bừng lên và Người đánh phạt họ bằng bệnh dịch rất nặng. Nơi đó về sau được gọi là Kibroth Hattaavah, nghĩa là "Mồ chôn sự tham ăn".
 
 Từ Kibroth Hattaavah họ đi tới Hazeroth và đóng trại tại đó.

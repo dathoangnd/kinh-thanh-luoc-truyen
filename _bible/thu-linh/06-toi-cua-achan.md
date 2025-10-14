@@ -23,4 +23,4 @@ Joshua sai người đi tìm và thấy chúng được giấu dưới đất tr
 
 Joshua và dân Israel đem Achan cùng với con trai con gái, cái áo choàng, vàng bạc, gia súc, trại, những tài sản khác, đi tới thung lũng gần đó. Joshua nói: "Sao ngươi lại mang họa cho chúng ta? Ngày hôm nay Thiên Chúa sẽ trừng phạt ngươi."
 
-Dân chúng ném đá Achan và người nhà, rồi đem đốt xác. Trên xác Achan họ chất một đống đá to. Thung lũng đó về sau được gọi là Achor, nghĩa là tai họa. 
+Dân chúng ném đá Achan và người nhà, rồi đem đốt xác. Trên xác Achan họ chất một đống đá to. Thung lũng đó về sau được gọi là Achor, nghĩa là "Tai họa". 

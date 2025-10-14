@@ -23,6 +23,6 @@ Thiên sứ nói: "Hãy trở về với bà chủ ngươi và vâng phục ngư
 
 Hagar nói: "Ngài là Thiên Chúa Đấng đoái xem tôi. Bây giờ tôi đã thấy Ngài."
 
-Vì thế cái giếng ở giữa Kadesh và Bered được gọi là giếng Beer Lahai Roid, nghĩa là giếng của Đấng đã thấy tôi.
+Vì thế cái giếng ở giữa Kadesh và Bered được gọi là giếng Beer Lahai Roid, nghĩa là "Giếng của Đấng đã thấy tôi".
 
 Hagar sinh cho Abram một con trai, và Abram đặt tên cho đứa trẻ là Ishmael. Khi đó Abram đã tám mươi sáu tuổi.
