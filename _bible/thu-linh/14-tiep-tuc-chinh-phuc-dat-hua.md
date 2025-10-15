@@ -1,6 +1,8 @@
 ---
-title: Hoàn tất chinh phục đất hứa
+title: Tiếp tục chinh phục đất hứa
 description: Sau khi Joshua qua đời, dân Israel tiếp tục chinh phục những phần còn lại của đất hứa. Chi tộc Judah và Simeon dẫn đầu, đánh chiếm Jerusalem, Hebron và nhiều thành khác.
+redirect_from:
+  - /thu-linh/hoan-tat-chinh-phuc-dat-hua/
 ---
 
 Sau khi Joshua qua đời, dân Israel cầu hỏi Thiên Chúa: "Ai trong chúng con sẽ đi trước để đánh người Canaan?"
