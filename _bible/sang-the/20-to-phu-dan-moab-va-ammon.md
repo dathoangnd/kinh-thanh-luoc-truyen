@@ -1,6 +1,6 @@
 ---
 title: Tổ phụ dân Moab và Ammon
-description: Abraham gặp vua Abimelek, trải qua thử thách về sự thật và lòng tin, qua đó thể hiện sự bảo vệ và dẫn dắt của Thiên Chúa dành cho Abraham cùng gia đình ông.
+description: Lot và hai con gái bỏ lên núi sống. Các con gái ông tìm cách để giúp ông duy trì dòng dõi, sinh ra tổ phụ dân Moab và Ammon.
 ---
 
 Lot và hai con gái sợ hãi bỏ Zoar và lên núi, ở trong một hang động. Một ngày kia cô chị cả nói với cô em: "Cha ta đã già, mà không có người đàn ông nào quanh đây để cho chúng ta sinh con. Vậy hãy cho cha uống rượu và ngủ với người để bảo tồn dòng dõi cho cha."

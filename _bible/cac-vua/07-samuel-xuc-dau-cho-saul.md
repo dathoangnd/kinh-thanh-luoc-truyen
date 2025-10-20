@@ -1,6 +1,6 @@
 ---
-title: Saul làm vua Israel
-description: Saul đi tìm lừa lạc, gặp Samuel và được xức dầu theo ý Thiên Chúa. Thần khí Thiên Chúa biến đổi ông, ông được dân Israel tung hô và tôn lên làm vua đầu tiên của Israel.
+title: Samuel xức dầu cho Saul
+description: Saul đi tìm lừa lạc, gặp Samuel và được xức dầu theo ý Thiên Chúa để làm vua dân Israel.
 ---
 
 Có một người Benjamin tên là Kish, vốn là người có địa vị cao. Ông sinh được một người con trai cao lớn và đẹp trai tên là Saul.
@@ -57,20 +57,6 @@ Cậu đáp: "Cháu đi tìm lừa. Nhưng khi không tìm thấy thì chúng ch
 
 Bác cậu hỏi: "Ông Samuel đã nói gì với cháu?"
 
-Saul đáp: "Ông ấy chỉ nói lừa của cha cháu đã được tìm thấy rồi."
+Saul đáp: "Ông ấy chỉ nói lừa của cha cháu đã được tìm thấy thôi."
 
----
-
-Samuel tập hợp dân Israel tại Mizpah và nói: "Thiên Chúa đã đem các ngươi ra khỏi Ai Cập, giải thoát các ngươi khỏi tay các vua thù địch. Nhưng các ngươi đã chối bỏ Thiên Chúa, để đòi một vua cho mình. Vậy giờ các ngươi hãy trình diện trước Thiên Chúa theo từng chi tộc và thị tộc."
-
-Khi các chi tộc đã tập hợp lại, Samuel cho bốc thăm và chọn ra chi tộc Benjamin. Trong chi tộc Benjamin thì bốc thăm chọn ra thị tộc Matri. Cuối cùng trong thị tộc Matri bốc thăm chọn ra Saul. Nhưng Saul lại không có mặt ở đó. Dân chúng cầu hỏi Thiên Chúa: "Người Chúa chọn đã tới đây chưa?"
-
-Thiên Chúa phán: "Nó đang lẩn giữa đống đồ kìa."
-
-Họ chạy lại và đưa cậu ra ngoài. Khi đứng giữa những người khác, cậu cao hơn họ cả cái đầu. Samuel nói với dân chúng: "Các ngươi đã thấy người được Thiên Chúa chọn chưa? Không có ai được như ngài ấy giữa chúng ta."
-
-Dân chúng hô vang: "Đức vua vạn tuế!"
-
-Samuel giải thích cho dân quyền và nghĩa vụ của công dân trong vương quốc mới. Ông viết lại chúng trong một cuộn da và đặt nó trước nhan Thiên Chúa. Rồi Samuel cho giải tán dân chúng để ai trở về nhà nấy.
-
-Saul cũng được mấy thị vệ đưa trở về nhà ở Gibeah. Có vài người tỏ ra khinh bỉ mà không đến tiếp rước. Họ bảo nhau rằng: "Làm sao gã này có thể giải cứu chúng ta đây?"
+Nhưng Saul không nói gì về việc cậu được ông Samuel xức dầu để làm vua Israel.
