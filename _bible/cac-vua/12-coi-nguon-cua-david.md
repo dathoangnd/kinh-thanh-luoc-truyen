@@ -13,7 +13,7 @@ Dọc đường, bà Naomi nói với hai con dâu: "Các con hãy trở về nh
 
 Bà hôn hai con dâu để tạm biệt, thì họ khóc mà rằng: "Chúng con sẽ đi với mẹ về quê hương của mẹ."
 
-Nhưng bà Naomi đáp: "Các con hãy cứ về nhà đi. Sao các con lại muốn đi theo mẹ? Mẹ sẽ chẳng có đứa con trai nào khác để làm chồng các con đâu, vì mẹ đã già rồi. Mà giả như nay mẹ có con đi nữa, thì các con có đợi tới khi nó lớn được không? Không các con ạ, đời mẹ phải chịu cay đắng hơn các con muôn phần, vì Thiên Chúa đã quay lưng với mẹ."
+Nhưng bà Naomi đáp: "Các con hãy cứ về nhà đi. Sao các con lại muốn đi theo mẹ? Mẹ sẽ chẳng có đứa con trai nào khác để làm chồng các con đâu, vì mẹ đã già rồi. Mà giả như nay mẹ có con trai đi nữa, thì các con có đợi tới khi nó lớn được không? Không các con ạ, đời mẹ phải chịu cay đắng hơn các con muôn phần, vì Thiên Chúa đã quay lưng với mẹ."
 
 Họ lại khóc ở đó. Đoạn Orpah hôn mẹ chồng nàng rồi đi về, nhưng Ruth vẫn cứ theo bà.
 
@@ -79,7 +79,7 @@ Vậy nàng chuẩn bị rồi đi xuống chỗ sân đập lúa. Khi ông Boaz
 
 Ruth đáp: "Con là Ruth tôi tớ của ông. Xin ông lấy góc mền mà đắp cho con, vì ông là người gìn giữ cho nhà con."
 
-Ông Boaz nói: "Xin Thiên Chúa chúc phước cho con. Con đã tỏ cho ta thấy phẩm hạnh còn hơn cả trước. Con đã chẳng chạy theo những người trai trẻ, dù giàu dù nghèo. Vậy giờ con đừng sợ, vì ta sẽ chấp nhận lời con xin. Dù ta có trách nhiệm với nhà con, nhưng có một người còn có bà con gần với con hơn ta. Còn cứ ở lại đây, sáng mai ta sẽ hỏi ông ấy. Nếu ông ấy không đồng ý lấy con, thì ta thề sẽ làm như vậy."
+Ông Boaz nói: "Xin Thiên Chúa chúc phước cho con. Con đã tỏ cho ta thấy phẩm hạnh còn hơn cả trước. Con đã chẳng chạy theo những người trai trẻ, dù giàu dù nghèo. Vậy giờ con đừng sợ, vì ta sẽ chấp nhận lời con xin. Dù ta có trách nhiệm với nhà con, nhưng có một người còn có bà con gần với con hơn ta. Con cứ ở lại đây, sáng mai ta sẽ hỏi ông ấy. Nếu ông ấy không đồng ý lấy con, thì ta thề sẽ làm như vậy."
 
 Vậy nàng cứ nằm lại đó cho tới tảng sáng. Nàng dậy sớm và nói rằng: "Không nên để cho ai biết con đã đến chỗ này."
 
@@ -103,7 +103,7 @@ Bà Naomi đáp: "Vậy con cứ đợi xem chuyện gì sẽ xảy đến. Ông
 
 Ông Boaz nói: "Nếu ông mua lại mảnh đất, ông cũng sẽ phải cưới Ruth con gái người Moab, để duy trì tên tuổi cho người chồng quá cố của nàng cùng với sản vật."
 
-Người kia bèn đáp: "Vậy tôi không thể làm vậy được vì sợ sẽ ảnh hưởng tới tài sản của tôi. Ông cứ nhận lấy vậy."
+Người kia bèn đáp: "Tôi không thể làm vậy được vì sợ sẽ ảnh hưởng tới tài sản của tôi. Thế thì ông cứ nhận lấy vậy."
 
 Rồi ông ta cởi dép mình ra đưa cho ông Boaz để làm chứng, theo như phong tục thời đó.
 
