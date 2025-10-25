@@ -18,3 +18,5 @@ Vua bèn sai người đến tìm ông Jesse và nói: "Ông hãy đưa con trai
 David vào dưới trướng vua Saul để phục vụ ông. Vua rất thích cậu, và cho cậu làm người cầm giáp cho vua. Vua cho gửi lời tới ông Jesse: "Cứ để David lại đó, vì vua rất thích cậu."
 
 Mỗi khi vua Saul cảm thấy bất an, David lại gảy đàn, giúp cho tâm trạng vua trở nên tốt hơn.
+
+Ba anh trai lớn nhất của David là Eliab, Abinadab, và Shammah cũng phục vụ dưới trướng vua Saul. Họ theo vua đi đánh trận, nhưng David còn nhỏ nên không ra trận mà thỉnh thoảng lại trở về quê nhà ở Bethlehem để tiếp tục chăn chiên cho cha.
