@@ -61,7 +61,7 @@ Gideon nói: "Họ là anh em ruột thịt của ta. Ta thề có Thiên Chúa 
 
 Rồi ông quay sang Jether, con trai cả của ông, và nói: "Giết chúng đi!"
 
-Nhưng Jether không dám rút kiếm, vì cậu mới chỉ là một cậu bé và rất sợ hãi.
+Nhưng Jether không dám rút gươm, vì cậu mới chỉ là một cậu bé và rất sợ hãi.
 
 Zebah và Zalmunna nói: "Ông hãy tự mình làm đi. Người thế nào thì sức thế ấy."
 

@@ -37,7 +37,7 @@ Nhưng David nói: "Tôi tớ ngài thường xuyên canh giữ bầy chiên cho
 
 Vua đáp: "Ngươi cứ đi, nguyện xin Thiên Chúa ở với ngươi."
 
-Vua Saul lấy áo trong của mình mặc cho Daivd, rồi cho cậu mặc áo giáp bên ngoài và đội mũ đồng. David đeo thanh kiếm lên hông rồi đi lại vài vòng để quen dần với bộ quân phục.
+Vua Saul lấy áo trong của mình mặc cho Daivd, rồi cho cậu mặc áo giáp bên ngoài và đội mũ đồng. David đeo thanh gươm lên hông rồi đi lại vài vòng để quen dần với bộ quân phục.
 
 David nói: "Tôi không quen mặc mấy thứ này."
 

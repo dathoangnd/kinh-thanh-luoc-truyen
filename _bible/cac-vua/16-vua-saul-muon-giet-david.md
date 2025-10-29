@@ -3,7 +3,7 @@ title: Vua Saul muốn giết David
 description: Vua Saul bắt đầu ghen ghét David vì sự nổi tiếng và ân sủng Thiên Chúa dành cho ông. Vua nhiều lần tìm cách giết David, nhưng Thiên Chúa luôn bảo vệ ông.
 ---
 
-David trở nên thân thiết với Jonathan, con trai vua Saul. Jonathan lập kết ước với David, rồi cởi áo chùng, áo trong mình đang mặc, cùng với cả kiếm, cung và dây lưng đem tặng cho David.
+David trở nên thân thiết với Jonathan, con trai vua Saul. Jonathan lập kết ước với David, rồi cởi áo chùng, áo trong mình đang mặc, cùng với cả gươm, cung và dây lưng đem tặng cho David.
 
 David thành công trong mọi việc và được thăng lên cấp bậc cao trong quân đội. Ông cũng được lòng binh lính, và triều thần của vua Saul.
 
@@ -39,7 +39,7 @@ David tiếp tục đem quân đi đánh người Philistine, thu được nhi�
 
 ---
 
-Vua Saul sai con trai mình Jonathan và quân lính đi giết David. Nhưng Jonathan quý mến David, nên đã cảnh báo ông: "Cha tôi đang tìm cách để giết ngài. Sáng mai, ngài hãy cẩn thận và đi tìm chỗ nấp. Tôi sẽ đi với cha tôi ra đồng. Tôi sẽ nói chuyện với cha tôi và mang tin về cho ngài."
+Vua Saul sai con trai mình Jonathan và quân lính đi giết David. Nhưng Jonathan quý mến David, nên đã cảnh báo ông: "Cha tôi đang tìm cách để giết ông. Sáng mai, ông hãy cẩn thận và đi tìm chỗ nấp. Tôi sẽ đi với cha tôi ra đồng. Tôi sẽ nói chuyện với cha tôi và mang tin về cho ông."
 
 Jonathan nói tốt về David trước mặt vua cha: "Xin cha đừng làm hại David, vì ông ấy chẳng lỗi phạm với cha chút nào, mà ngược lại còn đang giúp ích cho cha. Ông ấy đã liều mạng mình đi đánh quân Philistine. Thiên Chúa đã giúp ông ấy giành chiến thắng, chính cha cũng biết điều đó. Sao cha lại muốn giết một người vô tội mà không có lý do chính đáng?"
 

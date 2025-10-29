@@ -5,7 +5,7 @@ description: Khi Samuel chưa đến, vua Saul mất kiên nhẫn và tự ý d�
 
 Bấy giờ dân Philistine đang áp bức Israel. Chúng cấm người Israel làm nghề thợ rèn, vì sợ họ sẽ làm gươm giáo để chống lại chúng. Người Israel phải sang xứ của người Philistine để thuê họ mài lưỡi cày, cuốc, rìu và liềm.
 
-Vua Saul chọn ra hai nghìn người theo ông đóng trại tại Mikmash và vùng đồi Bethel, một nghìn người theo con trai ông là Jonathan đóng trại tại Gibeah. Ngoại trừ vua và con trai ông mang kiếm ra, còn lại không có ai có vũ khí cả.
+Vua Saul chọn ra hai nghìn người theo ông đóng trại tại Mikmash và vùng đồi Bethel, một nghìn người theo con trai ông là Jonathan đóng trại tại Gibeah. Ngoại trừ vua và con trai ông mang gươm ra, còn lại không có ai có vũ khí cả.
 
 Jonathan cho tấn công trại quân Philistine ở Geba. Vua Saul cho người đi thổi kèn loan tin khắp Israel rằng: "Toàn dân hãy lắng nghe. Vua Saul đã đánh đồn quân Philistine, khiến chúng phải khiếp sợ."
 

@@ -33,7 +33,7 @@ Moses thấy rằng dân đã ra hư hỏng, và Aaron đã buông thả, khiế
 
 Tất cả người trong chi tộc Levi đứng về phía ông.
 
-Ông nói với họ: "Thiên Chúa phán bảo các ngươi hãy mang kiếm bên hông. Đi từ đầu trại đến cuối trại mà giết hết anh em, bạn bè và láng giềng."
+Ông nói với họ: "Thiên Chúa phán bảo các ngươi hãy mang gươm bên hông. Đi từ đầu trại đến cuối trại mà giết hết anh em, bạn bè và láng giềng."
 
 Những người Levi làm theo lời Moses truyền. Hôm đó có khoảng ba ngàn người chết. Moses nói: "Các ngươi đã theo Thiên Chúa và được Người chúc phước, vì các ngươi đã chẳng sá gì con cái, anh em mình."
 
