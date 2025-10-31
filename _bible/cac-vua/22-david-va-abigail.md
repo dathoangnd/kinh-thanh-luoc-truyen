@@ -1,5 +1,5 @@
 ---
-title: David tha mạng vua Saul
+title: David và Abigail
 description: Trong cơn giận dữ, David suýt gây đổ máu vô cớ. Nhờ Abigail can thiệp, bi kịch được ngăn chặn, và David cưới nàng làm vợ.
 ---
 
