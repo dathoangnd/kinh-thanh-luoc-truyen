@@ -1,7 +1,6 @@
 ---
 title: Vua Saul truy tìm David
 description: Vua Saul nghe tin David đang ở Keilah bèn kéo quân bao vây, nhưng Thiên Chúa đã cứu David thoát khỏi tay vua. Sau đó, ông ẩn náu trong hoang mạc Ziph và En Gedi.
-
 ---
 
 David nghe được tin rằng quân Philistine đang đánh thành Keilah, và đang cướp phá chỗ sân đập lúa. Ông cầu hỏi Thiên Chúa: "Con có nên đi đánh quân Philistine không?"
