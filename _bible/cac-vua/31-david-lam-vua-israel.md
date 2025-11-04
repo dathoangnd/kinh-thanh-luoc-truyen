@@ -16,3 +16,15 @@ David sai người giết Baanah và Rekab, cắt lấy chân tay và treo phầ
 Tất cả các chi tộc Israel đến với David tại Hebron và nói: "Chúng tôi cũng là anh em của ngài. Lúc trước, khi vua Saul còn cai trị chúng tôi, chính ngài đã dẫn chúng tôi đi đánh trận. Thiên Chúa đã cho ngài làm mục tử chăn dắt Israel, và ngài sẽ cai trị chúng tôi."
 
 David lập giao ước với họ tại Hebron trước nhan Thiên Chúa, và họ xức dầu tấn phong ông làm vua Israel. Khi đó, ông được ba mươi tuổi, và đã cai trị xứ Judah được bảy năm sáu tháng.
+
+---
+
+Quân Philistine nghe tin David đã được xức dầu làm vua Israel thì tập hợp nhau lại để đánh ông. David bèn dẫn quân Israel đi lẩn trốn. David cầu hỏi Thiên Chúa: "Con có nên đi đánh quân Philistine không? Ngài sẽ trao chúng vào tay con chứ?"
+
+Thiên Chúa đáp: "Hãy đi, Ta sẽ trao chúng vào tay ngươi."
+
+David bèn dẫn quân đi ra và đánh bại quân Philistine tại Baal Perazim, khiến chúng phải bỏ lại các tượng thần mà chạy. Chúng lại tập hợp tại thung lũng Rephaim.
+
+Thiên Chúa phán với David: "Đừng tấn công chúng trực diện, mà hãy vòng ra sau và đánh chúng chỗ mấy cây dương. Khi ngươi nghe thấy tiếng hành quân trên ngọn cây, hãy chạy đi vì đó là dấu hiệu Ta xuống để đánh bại quân Philistine."
+
+David làm theo, và quân Israel chiến thắng quân Philistine, đánh đuổi chúng từ Gibeon cho tới tận Gezer.

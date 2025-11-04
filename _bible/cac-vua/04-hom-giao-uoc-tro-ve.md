@@ -31,4 +31,4 @@ Nhưng có vài người ở Beth Shemesh dám nhìn vào trong Hòm Giao Ước
 
 Họ bèn cho người đến Kiriath Jearim và nói: "Người Philistine đã trả lại Hòm Giao Ước rồi. Các ông hãy xuống mà đưa đến thành mình."
 
-Vậy những người đàn ông Kiriath Jearim đi xuống và đưa Hòm Giao Ước tới nhà ông Abinadab ở trên vùng đồi, cắt đặt con trai ông là Eleazar canh giữ. Hòm Giao Ước ở lại Kiriath Jearim trong hai mươi năm.
+Vậy những người đàn ông Kiriath Jearim đi xuống và đưa Hòm Giao Ước tới nhà ông Abinadab ở trên vùng đồi Baalah, cắt đặt con trai ông là Eleazar canh giữ. Hòm Giao Ước ở lại Kiriath Jearim trong hai mươi năm.
