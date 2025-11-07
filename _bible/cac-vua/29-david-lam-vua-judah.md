@@ -11,7 +11,7 @@ Vậy David dẫn hai bà vợ và những người theo mình tới sống tạ
 
 Khi David biết những người Jabesh Gilead đã chôn cất vua Saul, ông sai người đến nói với họ: "Thiên Chúa chúc phước cho các ngươi vì đã chôn cất vua Saul chủ các ngươi. Xin Thiên Chúa làm ơn cho các ngươi, như chính ta cũng sẽ làm ơn vậy. Bây giờ, hãy mạnh mẽ và vững tin, bởi vua Saul đã chết, còn dân Judah đã tôn ta lên làm vua của họ."
 
-Tại Hebron, David sinh được sáu người con trai là Ammon, Kileab, Absalom, Adonijah, Shephatiah, và Ithream.
+Tại Hebron, David sinh được sáu người con trai là Amnon, Kileab, Absalom, Adonijah, Shephatiah, và Ithream.
 
 ---
 
