@@ -23,7 +23,7 @@ Họ đáp: "Chúng tôi sẽ theo ngài."
 
 Vua David cho khởi hành, mang theo gia quyến, chỉ trừ mười người vợ lẽ còn ở lại trong cung. Thị vệ của vua đi phía đằng trước, dân trong thành đi theo phía sau.
 
-Vua David nói với một thị vệ là Ittai: "Sao ngươi lại đi với chúng ta mà không đi theo Absalom? Ngươi là một ngoại kiều và mới chỉ đến ngày hôm qua. Vậy mà hôm nay ta lại bắt ngươi lang thang mà còn chưa biết phải đi đâu. Ngươi hãy về với những người của mình đi. Xin Thiên Chúa đoái thương ngươi."
+Vua David nói với quan chỉ huy thị vệ là Ittai: "Sao ngươi lại đi với chúng ta mà không đi theo Absalom? Ngươi là một ngoại kiều và mới chỉ đến ngày hôm qua. Vậy mà hôm nay ta lại bắt ngươi lang thang mà còn chưa biết phải đi đâu. Ngươi hãy về với những người của mình đi. Xin Thiên Chúa đoái thương ngươi."
 
 Nhưng Ittai đáp: "Có Thiên Chúa làm chứng, dù đức vua có đi đâu, tôi cũng sẽ theo đó, dù cho có phải liều mạng sống đi nữa."
 
@@ -39,4 +39,8 @@ Vua David đi lên núi, vừa đi vừa khóc. Vua đi chân trần và đầu 
 
 Khi lên tới đỉnh núi, vua David gặp một người tâm phúc là Hushai người Arkite, với áo quần xé rách và bụi trên đầu. Vua David nói với ông: "Nếu ngươi đi theo ta thì sẽ chỉ thêm gánh nặng mà thôi. Hãy trở về Jerusalem và giả bộ theo phe Absalom. Ngươi hãy làm cho Absalom không còn tin tưởng Ahithophel nữa, và nghe những gì chúng nói trong cung. Sau đó hãy nói lại với tư tế Zadok và Abiathar, rồi sai con của họ tới báo tin cho ta."
 
-Vậy Hushai trở lại Jerusalem vừa lúc Absalom đang tiến vào thành.
+Vậy Hushai trở lại Jerusalem vừa lúc Absalom đang tiến vào thành. Ông đến gặp Absalom và nói: "Đức vua vạn tuế!"
+
+Absalom đáp: "Vậy ra đây là cách ngươi đối xử với bạn mình sao? Sao ngươi không cùng đi với ông ta?"
+
+Hushai nói: "Tôi sẽ đi với người được Thiên Chúa và dân Israel chọn. Như tôi đã phục vụ cha ngài, giờ tôi cũng sẽ phục vụ ngài."
