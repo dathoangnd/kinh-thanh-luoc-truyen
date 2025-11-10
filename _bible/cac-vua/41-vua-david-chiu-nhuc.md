@@ -27,4 +27,4 @@ Nhưng vua David đáp: "Đừng làm như thế. Nếu như chính Thiên Chúa
 
 Đoạn vua David nói với quần thần: "Con trai do chính ta sinh ra còn đang muốn giết ta, huống gì là người Benjamin này? Hãy cứ để hắn đi. Xin Thiên Chúa đoái nhìn nỗi khổ của ta và có lẽ Người sẽ khôi phục lời chúc phúc cho ta thay vì lời nguyền rủa."
 
-Vậy vua David và dđoàn người cứ đi tiếp trong lúc Shimei đi phía bên kia đồi, vừa đi vừa nguyền rủa và ném đá về phía họ.
+Vậy vua David và đoàn người cứ đi tiếp trong lúc Shimei đi phía bên kia đồi, vừa đi vừa nguyền rủa và ném đá về phía họ.
