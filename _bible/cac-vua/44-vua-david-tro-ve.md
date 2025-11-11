@@ -35,7 +35,7 @@ Mephibosheth đáp: "Cứ để hắn lấy hết cũng được, vì giờ ngà
 
 Trong số người ở đó, có ông Barzillai người Gilead. Ông đã già, và là một người giàu có. Chính ông đã thu xếp chỗ ở cho vua David ở Mahanaim. Vua David nói với ông: "Ông hãy ở với ta tại Jerusalem. Chính ta sẽ cấp dưỡng cho ông."
 
-Nhưng ông Barzillai đáp: "Tôi còn sống bao lâu nữa đâu mà lại đến Jerusalem với ngài? Tôi năm nay đã tám mươi tuổi rồi, chẳng còn thiết tha gì sự sung sướng nữa. Tôi chẳng dám mang gánh nặng cho ngài. Tôi chỉ xin qua sông để tiễn ngài một đoạn thôi. Sau đó tôi sẽ trở về, để tôi chết trong xứ sở mình cùng với cha mẹ tôi. Đây tôi có tên đầy tớ Kimham, xin cho nó đi theo ngài để phục vụ ngài."
+Nhưng ông Barzillai đáp: "Tôi còn sống bao lâu nữa đâu mà lại đến Jerusalem với ngài? Tôi năm nay đã tám mươi tuổi rồi, chẳng còn thiết tha gì sự sung sướng nữa. Tôi chẳng dám mang gánh nặng cho ngài. Tôi chỉ xin qua sông để tiễn ngài một đoạn thôi. Sau đó tôi sẽ trở về, để tôi chết trong xứ sở mình cùng với cha mẹ tôi. Đây tôi có đứa con trai tên là Kimham, xin cho nó đi theo ngài để phục vụ ngài."
 
 Vua David nói: "Vậy Kimham sẽ đi với ta. Nếu ông muốn gì hãy cứ cho ta biết và ta sẽ đáp ứng cho ông."
 
