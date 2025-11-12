@@ -33,15 +33,15 @@ Từ đó dòng dõi của Eli không con ai làm tư tế nữa, ứng nghiệm
 
 ---
 
-Tin tức truyền tới tai Joab, người đã thông đồng với Adonijah và Abiathar. Ông ta hoảng sợ chạy tới lều chứa Hòm Giao Ước và nắm lấy cái sừng trên bàn thờ. Nhưng vua Solomon vẫn sai Benaiah: "Hãy đi giết hắn!"
+Tin tức truyền tới tai Joab, người đã thông đồng với Adonijah và Abiathar. Ông ta hoảng sợ chạy tới Lều chứa Hòm Giao Ước và nắm lấy cái sừng trên bàn thờ. Nhưng vua Solomon vẫn sai Benaiah: "Hãy đi giết hắn!"
 
-Benaiah vào trong lều và nói với Joab: "Ngài hãy ra ngoài đi."
+Benaiah vào trong Lều và nói với Joab: "Ngài hãy ra ngoài đi."
 
 Joab đáp: "Không, ta sẽ chết ở đây."
 
 Benaiah về báo lại, thì vua Solomon nói: "Vậy cứ giết hắn tại đó đi, để ta và nhà cha ta được sạch nợ máu mà hắn đã gây ra. Hắn đã giết Abner và Amasa, những người còn tốt và công chính hơn hắn. Xin nợ máu đổ trên đầu hắn và dòng dõi hắn đời đời."
 
-Benaiah bèn đi giết Joab ở trong lều. Ông được chôn tại quê nhà. Benaiah thay Joab làm quan tổng binh Israel.
+Benaiah bèn đi giết Joab ở trong Lều. Ông được chôn tại quê nhà. Benaiah thay Joab làm quan tổng binh Israel.
 
 ---
 

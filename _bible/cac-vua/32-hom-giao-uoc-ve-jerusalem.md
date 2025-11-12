@@ -25,7 +25,7 @@ Ba tháng sau, người ta báo tin cho vua David: "Thiên Chúa đã chúc phư
 
 Vua David lại vui mừng mà đi lên để rước Hòm Giao Ước về Jerusalem. Mỗi khi những người khiêng Hòm Giao Ước đi được sáu bước, vua lại cho hiến tế một con bò đực và một con bê mập. Vua David cũng nhảy múa trước Hòm Giao Ước trong tiếng hò reo và tiếng kèn của dân chúng.
 
-Họ đưa Hòm Giao Ước vào thành, đặt trong một cái lều mà vua David đã cho dựng sẵn. Ở đó, vua David dâng của lễ toàn thiêu và của lễ thù ân lên Thiên Chúa. Rồi vua chúc phúc cho dân chúng, cho họ bánh ăn và họ trở về nhà.
+Họ đưa Hòm Giao Ước vào thành, đặt trong Lều mà vua David đã cho dựng sẵn. Ở đó, vua David dâng của lễ toàn thiêu và của lễ thù ân lên Thiên Chúa. Rồi vua chúc phúc cho dân chúng, cho họ bánh ăn và họ trở về nhà.
 
 Lúc vua David đi vào nhà, thì Michal con gái vua Saul ra gặp ông mà nói: "Sao hôm nay đức vua của Israel lại cởi trần mà nhảy múa giữa đám nữ tỳ của tôi tớ mình, trông hệt như một gã hề!"
 
