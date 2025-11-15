@@ -5,7 +5,7 @@ description: Vua Jeroboam dựng hai tượng bê vàng tại Bethel và Dan đ�
 
 Vua Jeroboam cho tu sửa thành Shechem trong vùng đồi Ephraim và sống lại đó. Về sau ông cho xây thành Peniel và đóng đô tại Tirzah.
 
-Vua Jeroboam tự nhủ: "Nếu dân chúng cứ lên dâng lễ tại Đền Thờ Jerusalem, thì chúng sẽ lại theo nhà David mất thôi. Chúng sẽ giết ta mà trở về với vua Rehoboam."
+Vua Jeroboam tự nhủ: "Nếu dân chúng cứ lên dâng lễ tại Đền Thờ Jerusalem, thì chúng sẽ lại theo nhà David mất thôi. Chúng sẽ giết ta mà trở về với Rehoboam."
 
 Sau khi nghe lời khuyên, vua cho làm tượng hai con bê bằng vàng, đặt một cái ở Bethel, một cái ở Dan, và nói với dân chúng: "Các ngươi đi lên Jerusalem thì thật là khó nhọc. Đây chính là Thiên Chúa của Israel, Đấng đã đưa các ngươi ra khỏi Ai Cập."
 
