@@ -3,8 +3,6 @@ title: Ba vua đánh bại người Moab
 description: Israel, Judah và Edom liên minh đánh Moab. Elisha tiên báo chiến thắng, cho nước tràn đầy thung lũng. Quân Moab bị đánh bại, chỉ còn thành Kir Hareseth trụ lại.
 ---
 
-Vua Joram lên ngôi thay cho em trai mình là Ahaziah đã qua đời. Ông cho phá bỏ các tượng đá của thần Baal mà vua Ahab cha ông đã dựng, nhưng ông vẫn cho dân Israel tiếp tục thờ phượng hai con bê vàng ở Bethel và Dan.
-
 Bấy giờ Israel đang có giao tranh với người Moab. Nguyên khi trước vua Moab vốn là chư hầu của Israel, phải cống nộp cho Israel một trăm nghìn con chiên và lông của một trăm nghìn con khác. Nhưng từ khi vua Ahab qua đời thì họ dấy loạn. Vua Joram huy động quân Israel đi đánh họ, và cho gửi lời tới Jehoshaphat vua Judah: "Mesha vua Moab đã nổi loạn chống lại tôi. Ngài sẽ đi cùng tôi để đánh quân Moab chứ?"
 
 Vua Jehoshaphat đáp lời: "Tôi sẽ đi cùng ngài. Tôi là anh em ngài, người của tôi cũng là người của ngài, và ngựa của tôi cũng là ngựa của ngài."

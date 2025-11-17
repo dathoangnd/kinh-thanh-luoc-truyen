@@ -29,7 +29,7 @@ Vua Ahab bèn làm theo và triệu tập các tư tế cùng dân chúng tại 
 
 Dân chúng im lặng. Ông Elijah lại nói: "Tôi là ngôn sứ duy nhất còn lại của Thiên Chúa, nhưng Baal thì có bốn trăm năm mươi người. Giờ hãy chuẩn bị cho chúng tôi hai con bò đực. Các tư tế của Baal hãy lấy một con, xẻ thịt ra và đặt lên trên đống củi nhưng không được đốt. Tôi cũng sẽ làm như vậy. Thiên Chúa thật sẽ đáp lại bằng lửa."
 
-Dân chúng đồng tình theo cách đó. Elijah nói với các ngôn sứ của Baal: "Các ông hãy chọn một con bò và chuẩn bị trước, rồi kêu tên thần của các ông xem."
+Dân chúng đồng tình theo cách đó. Elijah nói với các tư tế của Baal: "Các ông hãy chọn một con bò và chuẩn bị trước, rồi kêu tên thần của các ông xem."
 
 Họ bèn làm thịt con bò, rồi kêu cầu thần Baal từ sáng cho tới chiều, nhưng chẳng có gì đáp lại. Họ còn nhảy múa quanh bàn thờ đã dựng.
 

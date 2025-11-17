@@ -45,7 +45,7 @@ Người đàn bà phủ phục xuống đất trước mặt ông, rồi đón 
 
 ---
 
-Elisha trở về Gigal. Bấy giờ đang có nạn đói trong xứ, khi các ngôn xứ nơi đó ra gặp ông thì ông nói với Gehazi: "Con hãy lấy cái nồi lớn nấu chút canh cho họ."
+Elisha trở về Gigal. Bấy giờ đang có nạn đói trong xứ, khi các ngôn sứ nơi đó ra gặp ông thì ông nói với Gehazi: "Con hãy lấy cái nồi lớn nấu chút canh cho họ."
 
 Trong số các ngôn sứ, có một người đi ra đồng hái lượm được đầy túi cây dại, cắt ra bỏ vào trong canh mà không ai hay biết. Khi họ ăn canh, họ kêu lên: "Ôi, cái này ăn sao được?"
 
@@ -58,3 +58,15 @@ Gehazi đáp: "Làm sao con chia cho một trăm người được đây?"
 Elisha nói: "Con cứ làm đi. Chính Thiên Chúa đã nói sẽ còn bánh dư lại."
 
 Gehazi bèn đem bánh đi chia cho các ngôn sứ. Họ ăn no nê mà vẫn còn bánh để dư lại.
+
+---
+
+Một thời gian sau, các ngôn sứ lại tới thăm ông Elisha. Họ nói với ông: "Ngài xem, chỗ này thật là nhỏ. Hãy để chúng tôi đi ra bờ sông Jordan, dựng một chỗ cho tất cả chúng ta."
+
+Elisha đáp: "Các ông hãy đi."
+
+Họ bèn tới bờ sông Jordan và bắt đầu đốn cây. Bỗng lưỡi rìu của một người bị rơi xuống nước. Người đó la lên: "Ôi không! Cái rìu đó là tôi đi mượn được."
+
+Ông Elisha biết chuyện thì hỏi: "Nó rơi ở đâu?"
+
+Người đó chỉ chỗ cho ông. Elisha cắt một cái que ném xuống nước, lưỡi rìu bèn nổi lên.
