@@ -3,7 +3,7 @@ title: Elijah về trời
 description: Elijah được Thiên Chúa đón về trời trong một cơn gió lốc, Elisha kế nhiệm thầy mình và thực hiện những phép lạ đầu tiên.
 ---
 
-Elijah và Elisha đang trên đường rời khỏi Gilgal. Elijah biết thời gian của mình đã sắp hết nên nói với học trò: "Con hãy ở lại đây, Thiên Chúa đã sai thầy đi tới Bethel."
+Elijah và Elisha đang trên đường rời khỏi Gilgal. Elijah biết thời gian của mình đã sắp hết nên nói với môn đệ: "Con hãy ở lại đây, Thiên Chúa đã sai thầy đi tới Bethel."
 
 Nhưng Elisha đáp: "Có Thiên Chúa làm chứng, con sẽ không rời xa thầy."
 

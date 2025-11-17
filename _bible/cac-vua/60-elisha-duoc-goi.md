@@ -27,4 +27,4 @@ Elijah ra đi và gặp Elisha con trai của Shaphat, lúc cậu đang cày ru�
 
 Elijah đáp: "Cứ về đi."
 
-Elisha bèn về rồi quay trở lại. Cậu giết bò của mình, đốt cày để nấu rồi đem chia cho mọi người. Đoạn cậu theo ông Elijah để làm học trò của ông.
+Elisha bèn về rồi quay trở lại. Cậu giết bò của mình, đốt cày để nấu rồi đem chia cho mọi người. Đoạn cậu theo ông Elijah để làm môn đệ của ông.
