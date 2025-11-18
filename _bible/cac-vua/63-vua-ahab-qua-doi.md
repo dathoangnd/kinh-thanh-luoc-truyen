@@ -3,7 +3,7 @@ title: Vua Ahab qua đời
 description: Vua Ahab liên minh với vua Jehoshaphat đánh cao nguyên Gilead, bất chấp cảnh báo của ngôn sứ Micaiah và cái chết đúng như lời tiên báo.
 ---
 
-Lại nói về xứ Judah, vào năm thứ năm triều đại vua Rehoboam con vua Solomon, Pharaoh Shishak của Ai Cập dẫn quân đánh Jerusalem, lấy đi hết vàng bạc, kể cả các khiên vàng trong đền thờ. Vua Rehoboam bèn thay thế chúng bằng các khiên đồng. Vua Rehoboam trị vì Judah trong mười bảy năm rồi qua đời, được chôn tại Jerusalem. Con ông là Abijah lên kế vị.
+Nói về xứ Judah, vào năm thứ năm triều đại vua Rehoboam con vua Solomon, Pharaoh Shishak của Ai Cập dẫn quân đánh Jerusalem, lấy đi hết vàng bạc, kể cả các khiên vàng trong đền thờ. Vua Rehoboam bèn thay thế chúng bằng các khiên đồng. Vua Rehoboam trị vì Judah trong mười bảy năm rồi qua đời, được chôn tại Jerusalem. Con ông là Abijah lên kế vị.
 
 Abijah làm vua Judah trong ba năm. Trong suốt triều đại của ông thường xảy ra xung đột với vua Jeroboam của Israel. Khi ông qua đời, con ông là Asa lên kế vị.
 
