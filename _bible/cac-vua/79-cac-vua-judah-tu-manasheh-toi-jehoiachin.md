@@ -37,7 +37,7 @@ Vua Josiah cho đem các đồ cúng thần Baal và Asherah ra ngoài thành Je
 
 Ngay cả bàn thờ ở Bethel, mà lúc trước vua Jeroboam của Israel đã dựng, ông cũng đến mà dẹp bỏ. Khi vua Josiah nhìn quanh, trông thấy có vài nấm mộ trên đồi, bèn lấy xương cốt ra mà đốt trên bàn thờ, chỉ trừ mộ của vị ngôn sứ đến từ Judah đã tiên báo trước việc này.
 
-Vua Josiah đã làm một cuộc thanh tẩy lớn trên khắp Judah và đất cũ của Israel để loại trừ thần ngoại, hình tượng, đồng bóng và tà thuật theo như Sách Luật.
+Vua Josiah đã làm một cuộc thanh tẩy lớn trên khắp Judah và đất cũ của Israel để loại trừ thần ngoại, hình tượng, đồng bóng và tà thuật theo như Sách Luật. Cũng năm đó, lần đầu tiên kể từ thời các thủ lĩnh dân Judah ăn mừng lễ Vượt Qua tại Jerusalem.
 
 Cuối triều đại vua Josiah, Pharaoh Necho của Ai Cập hiệp binh với vua Assyria tiến đánh ông. Vua Josiah đem quân ra đối địch nhưng không may tử trận tại Megiddo. Người ta mang xác ông về Jerusalem trên chiến xa và chôn cùng với tổ phụ. Vua Josiah đã trị vì Judah được ba mươi mốt năm. Con trai ông là Jehoahaz lên kế vị.
 

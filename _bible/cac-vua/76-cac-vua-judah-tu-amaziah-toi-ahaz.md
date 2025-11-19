@@ -33,7 +33,15 @@ Vua Jotham trị vì Judah trong mười sáu năm rồi qua đời, được ch
 
 Vua Ahaz lên ngôi khi được hai mươi tuổi. Không như cha và ông mình, ông không đi theo đường lối Thiên Chúa mà làm điều dữ, thậm chí ông còn hiến tế con trai mình trong lửa. Ông cũng dâng của lễ ở các nơi cao và chỗ các bụi cây rậm rạp.
 
-Trong đời vua Ahaz có giao tranh với người Aram và người Israel, để mất thành Elath. Vua Ahaz đem vàng bạc trong Đền Thờ và cung điện làm tặng phẩm, gửi lời tới vua Assyria là Tiglath-Pileser: "Tôi là tôi tớ và chư hầu của ngài. Hãy tới giải cứu tôi khỏi tay vua Aram và vua Israel, vì họ đang đánh tôi."
+Trong đời vua Ahaz có giao tranh với vua Rezin của Aram và vua Pekah của Israel, để mất thành Elath. Thiên Chúa phán với ngôn sứ Isaiah: "Ngươi và con trai ngươi Shear-Jashub hãy đi tới gặp vua Ahaz ở chỗ máng nước của Hồ Trên, trên con đường tới Cánh Đồng Thợ Giặt. Hãy bảo nó đừng sợ, vì hai vua kia chỉ như hai khúc củi đang tàn lụi. Trong sáu mươi lăm năm nữa, Israel sẽ sụp đổ."
+
+Isaiah đi nói lại với vua Ahaz và hỏi: "Ngài muốn xin Thiên Chúa dấu chỉ gì, dù là ở nơi sâu thẳm nhất hay là nơi cao nhất cũng được?"
+
+Vua Ahaz đáp: "Ta sẽ chẳng dám thử thách Thiên Chúa đâu."
+
+Isaiah nói: "Dù rằng ngài không xin, Thiên Chúa vẫn sẽ cho ngài một dấu hiệu: Này một trinh nữ sẽ thụ thai, sinh một con trai, đặt tên là Immanuel. Con trẻ sẽ ăn sữa đông và mật ong rừng, và trước khi đủ khôn lớn để phân biệt đúng sai thì hai vương quốc kia đã lụi tàn rồi."
+
+Nhưng vua Ahaz lại đem vàng bạc trong Đền Thờ và cung điện làm tặng phẩm, gửi lời tới vua Assyria là Tiglath-Pileser: "Tôi là tôi tớ và chư hầu của ngài. Xin hãy tới giải cứu tôi khỏi tay vua Aram và vua Israel, vì họ đang đánh tôi."
 
 Vua Tiglath-Pileser bèn đem quân đi đánh chiếm thành Damascus của Aram, trục xuất dân thành Kir và giết dân trong thành Rezin.
 
@@ -42,5 +50,7 @@ Vua Ahaz đi đến Damascus để gặp vua Tiglath-Pileser. Ở đó ông trô
 Vua Ahaz ra lệnh cho tư tế Uriah: "Hãy dâng các của lễ sáng tối trên bàn thờ mới. Còn bàn thờ cũ thì ta sẽ dùng để cầu xin chỉ dẫn."
 
 Tư tế Uriah làm theo lệnh đó. Vua Ahaz còn cho tháo bỏ mái che và lối đi dành cho vua ngoài Đền Thờ để làm vừa lòng vua Assyria.
+
+Ngôn sứ Isaiah nói với vua Ahaz: "Vì ngài đã dựa thế người Assyria, nên rồi đây Thiên Chúa sẽ cho người Ai Cập và Assyria kéo đến đông như ruồi ong. Đất sẽ gặp tai ương, cánh đồng bỏ hoang, chỉ còn lại bụi gai và cây dại."
 
 Vua Ahaz trị vì Judah được mười sáu năm rồi qua đời. Con trai ông là Hezekiah lên kế vị.
