@@ -31,7 +31,7 @@ Vua Jotham trị vì Judah trong mười sáu năm rồi qua đời, được ch
 
 ---
 
-Vua Ahaz lên ngôi khi được hai mươi tuổi. Không như cha ông mình, ông không đi theo đường lối Thiên Chúa mà làm điều dữ, thậm chí ông còn hiến tế con trai mình trong lửa. Ông cũng dâng của lễ ở các nơi cao và chỗ các bụi cây rậm rạp.
+Vua Ahaz lên ngôi khi được hai mươi tuổi. Không như cha và ông mình, ông không đi theo đường lối Thiên Chúa mà làm điều dữ, thậm chí ông còn hiến tế con trai mình trong lửa. Ông cũng dâng của lễ ở các nơi cao và chỗ các bụi cây rậm rạp.
 
 Trong đời vua Ahaz có giao tranh với người Aram và người Israel, để mất thành Elath. Vua Ahaz đem vàng bạc trong Đền Thờ và cung điện làm tặng phẩm, gửi lời tới vua Assyria là Tiglath-Pileser: "Tôi là tôi tớ và chư hầu của ngài. Hãy tới giải cứu tôi khỏi tay vua Aram và vua Israel, vì họ đang đánh tôi."
 
@@ -43,4 +43,4 @@ Vua Ahaz ra lệnh cho tư tế Uriah: "Hãy dâng các của lễ sáng tối t
 
 Tư tế Uriah làm theo lệnh đó. Vua Ahaz còn cho tháo bỏ mái che và lối đi dành cho vua ngoài Đền Thờ để làm vừa lòng vua Assyria.
 
-Vua Ahaz trị vì Judah được mười sáu năm rồi qua đời. Con trai ông là Hazekiah lên kế vị.
+Vua Ahaz trị vì Judah được mười sáu năm rồi qua đời. Con trai ông là Hezekiah lên kế vị.

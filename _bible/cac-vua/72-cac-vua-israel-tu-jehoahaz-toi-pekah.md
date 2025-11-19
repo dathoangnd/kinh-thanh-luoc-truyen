@@ -1,6 +1,6 @@
 ---
-title: Các vua Israel từ Jehoahaz tới Hoshea
-description: Tóm lược các vua Israel từ Jehoahaz đến Hoshea, thời kỳ suy tàn với nội chiến, suy đồi, và ảnh hưởng của người Assyria dẫn đến sự diệt vong của vương quốc Israel.
+title: Các vua Israel từ Jehoahaz tới Pekah
+description: Tóm lược các vua Israel từ Jehoahaz đến Pekah, thời kỳ suy tàn với nội chiến, suy đồi, và ảnh hưởng của người Assyria dẫn đến sự diệt vong của vương quốc Israel.
 ---
 
 Sau khi vua Jehu qua đời, con trai ông là Jehoahaz lên kế vị. Ông vẫn cho dân Israel đi thờ phượng hai con bê vàng ở Bethel và Dan, và vẫn còn trụ thờ thần Asherah ở Samaria.
