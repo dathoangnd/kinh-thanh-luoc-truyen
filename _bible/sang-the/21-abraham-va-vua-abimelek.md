@@ -23,7 +23,7 @@ Abraham trả lời: "Tôi tự nghĩ rằng trong xứ này chẳng có ai kín
 
 Vua Abimelek đem chiên, bò, tôi trai tớ gái tặng cho Abraham, và trả lại bà Sarah cho ông. Sau đó vua nói: "Xứ ta ở trước mặt ngươi, ngươi muốn sống ở đâu tùy ý."
 
-Rồi vua nói với bà Sarah: "Ta cho anh ngươi một ngàn shekel bạc. Đây là đền bù cho lỗi lầm của ta với ngươi, và mọi người sẽ xem ngươi là trong sạch."
+Rồi vua nói với bà Sarah: "Ta cho anh ngươi một nghìn shekel bạc. Đây là đền bù cho lỗi lầm của ta với ngươi, và mọi người sẽ xem ngươi là trong sạch."
 
 Abraham kêu cầu Thiên Chúa, thì Người chữa khỏi vua Abimelek, cùng tất cả người của vua.
 

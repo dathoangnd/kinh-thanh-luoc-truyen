@@ -5,9 +5,9 @@ description: Dân Israel dựng Đền Tạm theo chỉ dẫn của Thiên Chúa
 
 Thiên Chúa phán với Moses: "Hãy làm cho Ta một Đền Tạm, để Ta ở giữa các ngươi. Hãy làm Đền Tạm và các đồ thờ phượng theo cách Ta sẽ chỉ cho ngươi."
 
-Đền Tạm được làm từ mười bức màn bằng vải lanh mịn , chỉ xanh, chỉ tím, chỉ đỏ, có thêu hình Cherubim bởi tay người thợ lành nghề. Mỗi tấm màn dài hai mươi tám cubit và rộng bốn cubit. Có các móc bằng vàng nối các bức màn để thành một thể thống nhất.
+Đền Tạm được làm từ mười bức màn bằng vải lanh mịn , chỉ xanh, chỉ tím, chỉ đỏ, có thêu hình Cherubim bởi tay người thợ lành nghề. Mỗi tấm màn dài hai mươi tám thước và rộng bốn thước. Có các móc bằng vàng nối các bức màn để thành một thể thống nhất.
 
-Khung dùng cho Đền Tạm được làm từ gỗ keo. Mỗi khung dài mười cubit và rộng một cubit rưỡi, có hai mộng đặt song song nhau, dưới mỗi mộng có một đế bạc. Phía nam có hai mươi khung, phía bắc có hai mươi khung, phía đông có hai mươi khung, phía tây có sáu khung. Ở hai góc phía tây có thêm hai khung nữa, mỗi khung được ghép đôi từ chân lên đến đỉnh, gắn chung vào một vòng.
+Khung dùng cho Đền Tạm được làm từ gỗ keo. Mỗi khung dài mười thước và rộng một thước rưỡi, có hai mộng đặt song song nhau, dưới mỗi mộng có một đế bạc. Phía nam có hai mươi khung, phía bắc có hai mươi khung, phía đông có hai mươi khung, phía tây có sáu khung. Ở hai góc phía tây có thêm hai khung nữa, mỗi khung được ghép đôi từ chân lên đến đỉnh, gắn chung vào một vòng.
 
 Mỗi phía của Đền Tạm có năm đòn ngang được làm bằng gỗ keo. Đòn ngang ở giữa chạy dọc từ đầu này tới đầu kia, xuyên qua các khung.
 
@@ -17,11 +17,11 @@ Trong Đền Tạm có một bức màn, treo bằng móc vàng trên bốn tr�
 
 Trong Nơi Chí Thánh đặt Hòm Giao Ước, với nắp thi ân đặt lên trên. 
 
-Bên ngoài Đền Tạm có mười một tấm màn che bằng lông dê. Mỗi tấm màn dài ba mươi cubit và rộng bốn cubit. Có năm mươi móc bằng đồng để nối các bức màn che thành một cái lều. Một nửa chiều dài bức màn dư phía sau và một cubit dư mỗi bên rủ xuống để che Đền Tạm. Trên chốc lều dùng lông chiên đực nhuộm đỏ và da để che phủ. Lối vào lều có một bức màn được móc bằng vòng vàng vào năm trụ gỗ keo, mỗi trụ đặt trên một đế bằng đồng.
+Bên ngoài Đền Tạm có mười một tấm màn che bằng lông dê. Mỗi tấm màn dài ba mươi thước và rộng bốn thước. Có năm mươi móc bằng đồng để nối các bức màn che thành một cái lều. Một nửa chiều dài bức màn dư phía sau và một thước dư mỗi bên rủ xuống để che Đền Tạm. Trên chốc lều dùng lông chiên đực nhuộm đỏ và da để che phủ. Lối vào lều có một bức màn được móc bằng vòng vàng vào năm trụ gỗ keo, mỗi trụ đặt trên một đế bằng đồng.
 
-Bốn phía Đền Tạm là bốn hành lang. Về phía nam và phía bắc, mỗi phía dài một trăm cubit, có treo hai mươi bức màn. Về phía đông và phía tây, mỗi phía rộng năm mươi cubit, có treo mười bức màn.
+Bốn phía Đền Tạm là bốn hành lang. Về phía nam và phía bắc, mỗi phía dài một trăm thước, có treo hai mươi bức màn. Về phía đông và phía tây, mỗi phía rộng năm mươi thước, có treo mười bức màn.
 
-Lối vào khuôn viên, có một bức màn dài hai mươi cubit treo trên bốn trụ đặt trên đế. 
+Lối vào khuôn viên, có một bức màn dài hai mươi thước treo trên bốn trụ đặt trên đế. 
 
 Đền Tạm được dựng xong vào ngày đầu tiên của năm thứ hai kể từ khi dân Israel ra khỏi Ai Cập. Thiên Chúa sai Moses xức dầu Đền Tạm và các đồ thờ phượng trong đó.
 

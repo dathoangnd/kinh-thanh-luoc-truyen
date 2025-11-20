@@ -43,11 +43,9 @@ Cuối triều đại vua Josiah, Pharaoh Necho của Ai Cập hiệp binh với
 
 ---
 
-Vua Jehoahaz lên ngôi khi được hai mươi ba tuổi, nhưng chỉ trị vì được ba tháng. Pharaoh Necho của Ai Cập đã bắt ông giam ở thành Riblah, cho lập Eliakim là anh trai ông lên làm vua, và đổi tên thành Jehoiakim. Còn vua Jehoahaz thì chúng đem về Ai Cập, ông chết tại đó. Vua Jehoiakim phải thu thuế trong dân để cống nộp một trăm nén bạc và một nén vàng cho Pharaoh Necho như ông ta đã đòi.
+Vua Jehoahaz lên ngôi khi hai mươi ba tuổi, nhưng chỉ được ba tháng. Pharaoh Necho của Ai Cập đã bắt ông giam ở thành Riblah, cho lập Eliakim là anh trai ông lên làm vua, và đổi tên thành Jehoiakim. Còn vua Jehoahaz thì chúng đem về Ai Cập, ông chết tại đó. Vua Jehoiakim phải thu thuế trong dân để cống nộp một trăm nén bạc và một nén vàng cho Pharaoh Necho như ông ta đã đòi.
 
----
-
-Dưới triều đại vua Jehoiakim, vua Nebuchadnezzar của Babylon xâm chiếm xứ, Judah phải làm chư hầu cho chúng trong ba năm. Judah cũng thường xuyên phải chịu sự cướp phá của dân Aram, Moab, Ammon khiến đất nước ngày càng suy tàn.
+Năm thứ ba triều đại vua Jehoiakim, vua Nebuchadnezzar của Babylon xâm chiếm xứ, nhiều người phải đi lưu đày và Judah phải làm chư hầu cho chúng trong ba năm. Judah cũng thường xuyên phải chịu sự cướp phá của dân Aram, Moab, Ammon khiến đất nước ngày càng suy tàn.
 
 Vua Jehoiakim trị vì Judah trong mười một năm rồi qua đời. Con trai ông là Jehoiachin lên kế vị.
 

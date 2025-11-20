@@ -11,7 +11,7 @@ Thần khí Thiên Chúa ngự trên Othniel, ông trở thành thủ lĩnh dân
 
 Dân Israel lại làm điều xấu xa phạm đến Thiên Chúa, và Thiên Chúa trao họ vào tay vua Eglon của người Moab. Vua Eglon hiệp binh với người Ammon và người Amalek tấn công Israel, chiếm được thành Jericho. Dân Israel phải làm tôi mọi cho vua Eglon trong mười tám năm.
 
-Dân chúng kêu cầu lên Thiên Chúa, và người dùng Ehud thuộc chi tộc Benjamin để giải cứu họ. Israel chọn Ehud đi cống nộp cho vua Eglon. Ehud cho làm một thanh gươm hai lưỡi dài khoảng một cubit, đeo ở bên hông phải dưới lớp áo, vì ông vốn thuận tay trái. Ehud dâng lễ vật lên vua Eglon rồi ra về. Nhưng dọc đường, khi tới những bia đá ở Gilgal, ông quay trở lại và nói với vua Eglon: "Thưa bệ hạ, tôi có một tin mật muốn cho ngài biết."
+Dân chúng kêu cầu lên Thiên Chúa, và người dùng Ehud thuộc chi tộc Benjamin để giải cứu họ. Israel chọn Ehud đi cống nộp cho vua Eglon. Ehud cho làm một thanh gươm hai lưỡi dài khoảng một thước, đeo ở bên hông phải dưới lớp áo, vì ông vốn thuận tay trái. Ehud dâng lễ vật lên vua Eglon rồi ra về. Nhưng dọc đường, khi tới những bia đá ở Gilgal, ông quay trở lại và nói với vua Eglon: "Thưa bệ hạ, tôi có một tin mật muốn cho ngài biết."
 
 Vua bèn nói với thuộc hạ: "Các ngươi hãy ra ngoài."
 

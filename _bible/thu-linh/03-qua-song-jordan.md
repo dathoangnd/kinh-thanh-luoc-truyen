@@ -5,7 +5,7 @@ description: Joshua dẫn dân Israel vượt sông Jordan nhờ phép lạ Thi�
 
 Joshua dậy sớm, đi cùng hết thảy dân Israel tới bờ sông Jordan rồi đóng trại tại đó.
 
-Trong ba ngày các thủ lĩnh đi lại trong trại, truyền lệnh cho dân: "Vì các ngươi chưa biết đường nên người chi tộc Levi sẽ mang Hòm Giao Ước đi trước, các ngươi sẽ đi theo sau. Nhưng các ngươi không được đi lại gần mà phải giữ khoảng cách hai ngàn cubit."
+Trong ba ngày các thủ lĩnh đi lại trong trại, truyền lệnh cho dân: "Vì các ngươi chưa biết đường nên người chi tộc Levi sẽ mang Hòm Giao Ước đi trước, các ngươi sẽ đi theo sau. Nhưng các ngươi không được đi lại gần mà phải giữ khoảng cách hai nghìn thước."
 
 Vào ngày thứ ba, Joshua nói với dân chúng: "Hãy thanh tẩy mình, vì ngày mai Thiên Chúa sẽ tỏ mình ra cho các ngươi."
 
@@ -19,7 +19,7 @@ Joshua nói với dân chúng: "Hãy lại mà nghe lời phán của Thiên Ch�
 
 Dân Israel cho dỡ các lều trại để chuẩn bị vượt sông, còn các tư tế đã đi trước họ. Bấy giờ đang là mùa gặt, nước sông Jordan dâng cao. Khi các tư tế mang Hòm Giao Ước tới sông và đặt chân lên mé nước, nước từ thượng nguồn liền ngừng chảy. Nước dồn lại từ một khoảng cách xa tới tận thành Adam, lân cận xứ Zarethan. Nhưng nước ở hạ nguồn chảy vào Biển Chết thì cạn khô. Dân chúng vượt sông để sang bên phía thành Jericho. Các tư tế đứng giữa lòng sông trên đất khô, cho tới khi toàn thể dân chúng đã qua sông.
 
-Hôm đó, có cả thảy bốn mươi ngàn người đàn ông được vũ trang đã qua sông để sẵn sàng đánh chiếm Jericho. Những người đàn ông chi tộc Reuben, Gad và Manasseh dẫn đầu họ.
+Hôm đó, có cả thảy bốn mươi nghìn người đàn ông được vũ trang đã qua sông để sẵn sàng đánh chiếm Jericho. Những người đàn ông chi tộc Reuben, Gad và Manasseh dẫn đầu họ.
 
 ---
 

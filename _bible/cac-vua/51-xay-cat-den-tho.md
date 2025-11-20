@@ -17,7 +17,7 @@ Vua Solomon huy động lao dịch trong toàn cõi Israel, được ba mươi n
 
 Năm thứ tư triều đại vua Solomon, tháng thứ hai, ông bắt đầu cho xây cất Đền Thờ của Thiên Chúa.
 
-Đền Thờ dài sáu mươi cubit, rộng hai mươi cubit và cao ba mươi cubit. Tiền sảnh phía trước Đền rộng bằng chiều ngang, tức hai mươi cubit, và nhô ra phía trước mười cubit. Gian Chính của Đền dài bốn mươi cubit. Ở cuối Đền Thờ là một gian dài hai mươi cubit làm Nơi Chí Thánh để chứa Hòm Giao Ước. Tường bên trong Đền được ốp gỗ bá hương, còn sàn được lát bằng gỗ trắc.
+Đền Thờ dài sáu mươi thước, rộng hai mươi thước và cao ba mươi thước. Tiền sảnh phía trước Đền rộng bằng chiều ngang, tức hai mươi thước, và nhô ra phía trước mười thước. Gian Chính của Đền dài bốn mươi thước. Ở cuối Đền Thờ là một gian dài hai mươi thước làm Nơi Chí Thánh để chứa Hòm Giao Ước. Tường bên trong Đền được ốp gỗ bá hương, còn sàn được lát bằng gỗ trắc.
 
 Công việc xây cất Đền Thờ được hoàn thành trong bảy năm.
 

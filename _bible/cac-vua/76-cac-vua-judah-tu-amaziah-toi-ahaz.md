@@ -13,7 +13,7 @@ Vua Amaziah lại gửi tin tới vua Israel lúc bấy giờ là Jehoash, với
 
 Vua Jehoash trả lời: "Một bụi gai đến nói với cây bá hương rằng: Hãy gả con gái ngươi cho con trai ta. Nhưng rồi một con thú hoang đi ngang qua giẫm nát bụi gai dưới chân. Đúng là ngài đã đánh bại dân Edom, nên giờ trở nên kiêu ngạo. Hãy tự hào về chiến thắng dó, nhưng hãy ở yên tại nhà. Sao ngài lại muốn gây chuyện để chuốc tai họa cho chính ngài và cả Judah nữa?"
 
-Nhưng vua Amaziah không nghe nên vua Jehoash đem quân đến đánh. Hai bên giao chiến tại Beth Shemesh trong đất Judah. Quân Judah thua phải trốn chạy về Jerusalem, vua Amaziah bị bắt sống. Quân Israel đi tới thành Jerusalem và đập phá tường thành một đoạn dài khoảng bốn trăm cubit, từ cổng Ephraim tới cổng Góc. Họ cũng lấy các đồ vàng bạc trong Đền Thờ và cung điện, bắt tù binh rồi trở về Samaria.
+Nhưng vua Amaziah không nghe nên vua Jehoash đem quân đến đánh. Hai bên giao chiến tại Beth Shemesh trong đất Judah. Quân Judah thua phải trốn chạy về Jerusalem, vua Amaziah bị bắt sống. Quân Israel đi tới thành Jerusalem và đập phá tường thành một đoạn dài khoảng bốn trăm thước, từ cổng Ephraim tới cổng Góc. Họ cũng lấy các đồ vàng bạc trong Đền Thờ và cung điện, bắt tù binh rồi trở về Samaria.
 
 Vua Amaziah trị vì Judah trong hai mươi chín năm. Ông bị người của mình làm phản phải trốn chạy đến Lachish, nhưng quân phản loạn đuổi theo giết ông tại đó. Người ta mang xác ông về chôn cất trong thành Jerusalem.
 

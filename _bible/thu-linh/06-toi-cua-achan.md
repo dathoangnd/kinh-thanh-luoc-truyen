@@ -5,9 +5,9 @@ description: Tội lỗi của Achan khiến cơn thịnh nộ của Thiên Chú
 
 Joshua sai mấy người đi từ Jericho tới thành Ai gần Beth Aven, về phía đông Bethel, và dặn rằng: "Các ngươi hãy đi và do thám xứ đó."
 
-Họ bèn đi để do thám thành Ai. Khi trở lại với Joshua, họ nói: "Không cần phải dùng tất cả binh lính đánh thành Ai đâu. Chỉ cần hai ba ngàn người đi đánh thành vì nơi đó thưa dân, số còn lại cứ để cho nghỉ ngơi."
+Họ bèn đi để do thám thành Ai. Khi trở lại với Joshua, họ nói: "Không cần phải dùng tất cả binh lính đánh thành Ai đâu. Chỉ cần hai ba nghìn người đi đánh thành vì nơi đó thưa dân, số còn lại cứ để cho nghỉ ngơi."
 
-Vậy khoảng ba ngàn người đi lên, nhưng họ bị người Ai đánh đuổi. Người Ai giết khoảng ba mươi sáu người, đuổi theo quân Israel từ cổng thành cho tới bãi đá, ép họ phải lùi xuống dốc. Quân Israel kinh sợ và không còn ý chí chiến đấu.
+Vậy khoảng ba nghìn người đi lên, nhưng họ bị người Ai đánh đuổi. Người Ai giết khoảng ba mươi sáu người, đuổi theo quân Israel từ cổng thành cho tới bãi đá, ép họ phải lùi xuống dốc. Quân Israel kinh sợ và không còn ý chí chiến đấu.
 
 Joshua bèn xé áo mình ra và sấp mình xuống đất trước Hòm Giao Ước, rồi ở đó cho tới tối. Các trưởng lão Israel cũng làm như vậy và rắc tro lên đầu. Joshua nói: "Ôi lạy Chúa, sao Ngài đem dân này qua sông Jordan để trao vào tay người Amorit? Ước chi chúng con cứ chọn ở lại phía bên kia sông. Xin thứ lỗi cho con, nhưng con có thể nói gì đây khi mà Israel bị quân thù đánh đuổi? Người Canaan và những dân tộc khác sẽ nghe biết chuyện này rồi sẽ bao vây quét sạch chúng con. Rồi Chúa sẽ làm gì để danh Ngài được vinh hiển?"
 

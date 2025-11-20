@@ -7,7 +7,7 @@ Sáng ngày ra, Gideon cho quân đóng trại tại suối Harod. Thiên Chúa 
 
 Gideon nói với binh lính: "Ai sợ hãi thì hãy quay về và ra khỏi núi Gilead."
 
-Hai mươi hai ngàn người rời đi, chỉ còn mười ngàn người ở lại.
+Hai mươi hai nghìn người rời đi, chỉ còn mười nghìn người ở lại.
 
 Thiên Chúa lại phán: "Vẫn còn quá nhiều người. Hãy dẫn chúng xuống uống nước, những ai uống nước bằng lưỡi như chó sẽ đi với ngươi để đánh người Midian, những người khác sẽ về nhà."
 
@@ -47,7 +47,7 @@ Gideon bèn nói: "Khi Thiên Chúa trao Zebah và Zalmunna vào tay ta, ta sẽ
 
 Từ đó, quân của Gideon đi lên chỗ cái tháp ở Peniel và xin bánh, nhưng họ cũng trả lời như người Sukkoth. Gideon nói: "Khi trở về trong vinh quang, ta sẽ phá đổ cái tháp này."
 
-Bấy giờ, vua Zebah và Zalmunna đang ở Karkor với khoảng mười lăm ngàn quân còn lại, chúng đã bị mất tới mười hai vạn quân. Gideon dẫn quân theo con đường của những người du mục, phía đông các thành Nobah và Jogbehah, rồi bất ngờ tấn công quân Midian khi chúng không hề cảnh giác. Zebah và Zalmunna tháo chạy, nhưng Gideon truy đuổi, bắt được chúng và tiêu diệt toàn bộ quân địch.
+Bấy giờ, vua Zebah và Zalmunna đang ở Karkor với khoảng mười lăm nghìn quân còn lại, chúng đã bị mất tới mười hai vạn quân. Gideon dẫn quân theo con đường của những người du mục, phía đông các thành Nobah và Jogbehah, rồi bất ngờ tấn công quân Midian khi chúng không hề cảnh giác. Zebah và Zalmunna tháo chạy, nhưng Gideon truy đuổi, bắt được chúng và tiêu diệt toàn bộ quân địch.
 
 Gideo dẫn quân trở về theo đường đèo Heres. Ông bắt được một thanh niên Sukkoth và tra hỏi. Hắn ta viết cho ông danh sách bảy mươi bảy chức sắc và trưởng lão của Sukkoth. Gideon bèn đi tới Sukkoth và nói: "Đây là Zebah và Zalmunna mà vì chúng các ngươi đã nhạo báng ta."
 

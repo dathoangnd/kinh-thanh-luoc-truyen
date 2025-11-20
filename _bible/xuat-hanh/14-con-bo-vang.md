@@ -35,7 +35,7 @@ Tất cả người trong chi tộc Levi đứng về phía ông.
 
 Ông nói với họ: "Thiên Chúa phán bảo các ngươi hãy mang gươm bên hông. Đi từ đầu trại đến cuối trại mà giết hết anh em, bạn bè và láng giềng."
 
-Những người Levi làm theo lời Moses truyền. Hôm đó có khoảng ba ngàn người chết. Moses nói: "Các ngươi đã theo Thiên Chúa và được Người chúc phước, vì các ngươi đã chẳng sá gì con cái, anh em mình."
+Những người Levi làm theo lời Moses truyền. Hôm đó có khoảng ba nghìn người chết. Moses nói: "Các ngươi đã theo Thiên Chúa và được Người chúc phước, vì các ngươi đã chẳng sá gì con cái, anh em mình."
 
 Ngày hôm sau Moses nói với dân: "Các ngươi đã phạm một tội lớn. Giờ ta sẽ lên gặp Thiên Chúa, may ra có thể chuộc tội được cho các ngươi."
 
