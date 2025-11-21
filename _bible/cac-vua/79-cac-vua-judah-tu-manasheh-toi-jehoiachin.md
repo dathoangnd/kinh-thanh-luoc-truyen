@@ -19,7 +19,7 @@ Sau khi trị vì được hai năm, ông bị cận thần ám sát ngay trong 
 
 Vua Josiah lên ngôi khi được tám tuổi. Không như cha và ông mình, ông đi theo đường lối Thiên Chúa như tổ phụ ông là vua David.
 
-Năm thứ mười tám dưới triều đại vua Josiah, ông cho người đi tới Đền Thờ để lo việc tu sửa lại Đền. Ở đó, thầy tư tế thượng phẩm Hilkiah trao một quyển sách cho quan cố vấn Shaphan: "Tôi đã tìm thấy Sách Luật trong Đền Thờ."
+Năm thứ mười tám dưới triều đại vua Josiah, ông cho người đi tới Đền Thờ để lo việc tu sửa lại Đền. Ở đó, thầy tư tế thượng phẩm Hilkiah trao một quyển sách cho quan cố vấn Shaphan: "Tôi đã tìm thấy sách luật trong Đền Thờ."
 
 Shaphan trở về nói với vua: "Tư tế Hilkiah đã trao cho tôi một cuốn sách."
 
@@ -29,15 +29,15 @@ Khi nghe những lời trong sách, vua Josiah xé áo mình ra và lệnh cho t
 
 Tư tế Hilkiah cùng với mấy người đi đến gặp nữ ngôn sứ Huldah, vợ của Shallum người giữ kho y phục. Bà sống tại Khu Mới trong Jerusalem.
 
-Bà nói với họ: "Thiên Chúa phán rằng Người sẽ giáng tai họa xuống dân này như đã chép trong Sách Luật, bởi họ đã lìa bỏ Thiên Chúa mà theo thần ngoại. Còn về phần vua Judah, bởi ông ấy đã hạ mình xuống trước Thiên Chúa, nên Thiên Chúa sẽ cho ông được về với tổ phụ mà không phải thấy tai họa sắp giáng xuống. Thiên Chúa sẽ xóa sổ Judah như đã làm với Israel, và Người sẽ lìa bỏ Jerusalem cùng với Đền Thờ ở đó."
+Bà nói với họ: "Thiên Chúa phán rằng Người sẽ giáng tai họa xuống dân này như đã chép trong sách luật, bởi họ đã lìa bỏ Thiên Chúa mà theo thần ngoại. Còn về phần vua Judah, bởi ông ấy đã hạ mình xuống trước Thiên Chúa, nên Thiên Chúa sẽ cho ông được về với tổ phụ mà không phải thấy tai họa sắp giáng xuống. Thiên Chúa sẽ xóa sổ Judah như đã làm với Israel, và Người sẽ lìa bỏ Jerusalem cùng với Đền Thờ ở đó."
 
-Họ về nói lại những lời đó cho vua Josiah. Vua bèn cho nhóm họp các trưởng lão khắp Judah, rồi cùng với dân chúng đi tới Đền Thờ. Ở đó vua Josiah đọc cho họ nghe những lời trong Sách Luật. Đoạn vua đứng bên cột trụ và làm nghi thức làm mới giao ước, rằng sẽ đi theo đường lối Thiên Chúa. Tất cả dân chúng cũng thề sẽ tuân theo giao ước này.
+Họ về nói lại những lời đó cho vua Josiah. Vua bèn cho nhóm họp các trưởng lão khắp Judah, rồi cùng với dân chúng đi tới Đền Thờ. Ở đó vua Josiah đọc cho họ nghe những lời trong sách luật. Đoạn vua đứng bên cột trụ và làm nghi thức làm mới giao ước, rằng sẽ đi theo đường lối Thiên Chúa. Tất cả dân chúng cũng thề sẽ tuân theo giao ước này.
 
 Vua Josiah cho đem các đồ cúng thần Baal và Asherah ra ngoài thành Jerusalem mà đốt, dẹp bỏ các bàn thờ thần ngoại và các nơi thờ phượng trên cao. Vua cũng cho phá hủy nơi mà bọn trai điếm và kỹ nữ vẫn sống trong Đền Thờ.
 
 Ngay cả bàn thờ ở Bethel, mà lúc trước vua Jeroboam của Israel đã dựng, ông cũng đến mà dẹp bỏ. Khi vua Josiah nhìn quanh, trông thấy có vài nấm mộ trên đồi, bèn lấy xương cốt ra mà đốt trên bàn thờ, chỉ trừ mộ của vị ngôn sứ đến từ Judah đã tiên báo trước việc này.
 
-Vua Josiah đã làm một cuộc thanh tẩy lớn trên khắp Judah và đất cũ của Israel để loại trừ thần ngoại, hình tượng, đồng bóng và tà thuật theo như Sách Luật. Cũng năm đó, lần đầu tiên kể từ thời các thủ lĩnh dân Judah ăn mừng lễ Vượt Qua tại Jerusalem.
+Vua Josiah đã làm một cuộc thanh tẩy lớn trên khắp Judah và đất cũ của Israel để loại trừ thần ngoại, hình tượng, đồng bóng và tà thuật theo như sách luật. Cũng năm đó, lần đầu tiên kể từ thời các thủ lĩnh dân Judah ăn mừng lễ Vượt Qua tại Jerusalem.
 
 Cuối triều đại vua Josiah, Pharaoh Necho của Ai Cập hiệp binh với vua Assyria tiến đánh ông. Vua Josiah đem quân ra đối địch nhưng không may tử trận tại Megiddo. Người ta mang xác ông về Jerusalem trên chiến xa và chôn cùng với tổ phụ. Vua Josiah đã trị vì Judah được ba mươi mốt năm. Con trai ông là Jehoahaz lên kế vị.
 

@@ -3,7 +3,7 @@ title: Pho tượng vàng
 description: Ba người Shadrach, Meshach, và Abednego từ chối thờ tượng vàng của vua Nebuchadnezzar và được Thiên Chúa giải cứu khỏi lò lửa.
 ---
 
-Vua Nebuchadnezzar làm một pho tượng bằng vàng, cao sáu mươi thước, rộng sáu mươi thước và đặt trên vùng đồng bằng Dura thuộc tỉnh Babylon. Rồi vua triệu tập các tổng trấn, các thống đốc, các quan cố vấn, quan giữ kho bạc, thẩm phán, quan tòa và mọi viên chức của các tỉnh đến dự lễ cung hiến pho tượng.
+Vua Nebuchadnezzar làm một pho tượng bằng vàng, cao sáu mươi thước, rộng sáu mươi thước và đặt trên vùng đồng bằng Dura thuộc tỉnh Babylon. Rồi vua triệu tập các tổng trấn, các tổng đốc, các quan cố vấn, quan giữ kho bạc, thẩm phán, quan tòa và mọi viên chức của các tỉnh đến dự lễ cung hiến pho tượng.
 
 Người ta lớn tiếng công bố: "Hỡi những người thuộc mọi dân tộc và ngôn ngữ, đây là lệnh các ngươi phải làm. Ngay khi các ngươi nghe tiếng kèn, tiếng sáo, tiếng đàn, các ngươi phải sấp mình xuống thờ lạy tượng vàng mà vua Nebuchadnezzar đã dựng lên. Ai không thờ lạy thì sẽ bị quăng vào lò lửa cháy rực."
 
