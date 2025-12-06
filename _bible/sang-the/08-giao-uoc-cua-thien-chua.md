@@ -7,7 +7,7 @@ redirect_from:
 
 Thiên Chúa nhớ lại Noah cùng các loài sinh vật ở trong tàu với ông, bèn khiến một trận gió thổi trên mặt đất, thì nước dừng lại. Các mạch nước ngầm lớn và các cống trời đóng lại, mưa trên trời không rơi xuống nữa. Nước dần dần rút xuống.
 
-Đến ngày mười bảy tháng bảy, chiếc tàu mắc cạn trên núi Ararat. Ngày mồng một tháng mười, mấy đỉnh núi mới lộ ra.
+Đến ngày mười bảy tháng bảy, chiếc tàu mắc cạn trên núi Ararat. Ngày mùng một tháng mười, mấy đỉnh núi mới lộ ra.
 
 Bốn mươi ngày sau, Noah mở cửa sổ trên tàu và thả ra một con quạ. Quạ cứ liệng đi liệng lại. Ông lại thả ra một con bồ câu, để xem nước đã hạ bớt trên mặt đất chưa. Nhưng bồ câu chẳng tìm được nơi nào đậu, bèn bay trở về tàu với ông.
 
