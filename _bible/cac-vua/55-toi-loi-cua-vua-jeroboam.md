@@ -41,7 +41,7 @@ Vị ngôn sứ nói: "Hãy về nhà tôi và ăn chút gì đã."
 
 Nhưng người kia đáp: "Tôi không thể, vì Thiên Chúa đã dặn tôi không được ăn uống hay trở về bằng con đường cũ."
 
-Ngôn sứ già nói: "Tôi cũng là một ngôn sứ như ông vậy. Một thiên thần đã hiện ra và nói với tôi phải đưa ông về nhà để ăn uống."
+Ngôn sứ già nói: "Tôi cũng là một ngôn sứ như ông vậy. Một thiên sứ đã hiện ra và nói với tôi phải đưa ông về nhà để ăn uống."
 
 Người kia bèn trở về nhà vị ngôn sứ già và ăn uống với ông.
 

@@ -7,7 +7,7 @@ Vua Ahab kể lại với Jezebel vợ mình việc ông Elijah đã làm với 
 
 Elijah sợ hãi trốn chạy đến Beersheba thuộc xứ Judah. Ở đó, ông tạm biệt người đầy tớ và đi một ngày đường vào trong đồng vắng. Ông ngồi dưới một bụi cây, cầu nguyện rằng: "Lạy Chúa, thế là đủ rồi. Xin hãy lấy mạng con đi, vì con chẳng khá hơn các tổ phụ con."
 
-Đoạn ông nằm thiếp đi. Một thiên thần đánh thức ông dậy mà nói: "Hãy dậy ăn chút gì."
+Đoạn ông nằm thiếp đi. Một thiên sứ đánh thức ông dậy mà nói: "Hãy dậy ăn chút gì."
 
 Ông nhìn quanh, thấy một chiếc bánh nướng và một bình nước ở gần chỗ đầu. Ăn xong, ông lấy lại sức và đi tiếp bốn mươi ngày bốn mươi đêm tới núi Sinai. Ở đó, ông vào trong một hang động nằm ngủ.
 

@@ -41,7 +41,7 @@ Micaiah bèn đáp: "Tôi thấy quân Israel tản mác trên đồi như chiê
 
 Vua Ahab quay sang nói với vua Jehoshaphat: "Ngài xem, tôi đã nói rằng hắn chẳng bao giờ nói tốt về tôi, chỉ toàn điều xấu."
 
-Micaiah nói tiếp: "Tôi trông thấy Thiên Chúa ngự trên ngai với thiên thần bên hữu và bên tả. Người hỏi rằng kẻ nào sẽ dụ dỗ Ahab đi đánh cao nguyên Gilead để rồi phải chết. Một thiên thần nói sẽ đặt lời dối gian vào miệng các ngôn sứ của vua. Vậy giờ chính các ngôn sứ của ngài đây đang đặt điều gian dối, để ngài phải gánh lấy tai họa."
+Micaiah nói tiếp: "Tôi trông thấy Thiên Chúa ngự trên ngai với thiên sứ bên hữu và bên tả. Người hỏi rằng kẻ nào sẽ dụ dỗ Ahab đi đánh cao nguyên Gilead để rồi phải chết. Một thiên sứ nói sẽ đặt lời dối gian vào miệng các ngôn sứ của vua. Vậy giờ chính các ngôn sứ của ngài đây đang đặt điều gian dối, để ngài phải gánh lấy tai họa."
 
 Một người trong đám ngôn sứ đến tát vào má Micaiah mà nói: "Thần khí của Thiên Chúa từ tôi đâu có đi mà nói với ông."
 

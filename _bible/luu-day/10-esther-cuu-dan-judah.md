@@ -11,7 +11,7 @@ Trong lúc đó, hoàng hậu Vashti cũng tổ chức tiệc cho những ngư�
 
 Đến ngày cuối cùng, hoàng đế Xerxes cao hứng trong men say, bèn sai bảy quan thái giám vào đưa hoàng hậu Vashti ra để mọi người được chiêm ngưỡng sắc đẹp của bà. Nhưng hoàng hậu từ chối không đến, khiến hoàng đế nổi giận.
 
-Hoàng đế hỏi bảy quan cố vấn thông thạo luật: "Theo luật, chúng ta nên làm gì với hoàng hậu Vashti?"
+Hoàng đế hỏi bảy quan kinh sư: "Theo luật, chúng ta nên làm gì với hoàng hậu Vashti?"
 
 Họ đáp: "Hoàng hậu đã sai chẳng những với ngài mà còn với mọi người ở đây nữa. Rồi những người vợ khác khi biết chuyện này sẽ khinh thường và bất tuân chồng mình, bởi ngay cả hoàng đế Xerxes còn không sai được vợ mình ra. Vậy xin ngài hãy viết ra chỉ thị để không ai thay đổi được, là phế truất hoàng hậu Vashti và trao vị trí đó cho người khác. Khi lệnh này được ban ra, mọi người vợ sẽ tôn trọng chồng mình hơn, từ kẻ nhỏ nhất tới người lớn nhất."
 

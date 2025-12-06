@@ -9,7 +9,7 @@ Người đàn bà tới gặp vua David. Và phủ phục trên mặt đất v�
 
 Vua đáp: "Bà có chuyện gì?"
 
-Bà ta nói: "Tôi là một quả phụ, chồng tôi đã chết. Tôi có hai con trai. Chúng đánh nhau ở ngoài đồng mà không có ai ngăn cản, khiến một đứa chết. Người trong thị tộc tôi bắt tôi nộp đứa kia ra để họ giết. Họ muốn lấy đi miềm hy vọng còn lại duy nhất của tôi, khiến cho tên của chồng tôi bị xóa sổ mà không có người nối dõi."
+Bà ta nói: "Tôi là một góa phụ, chồng tôi đã chết. Tôi có hai con trai. Chúng đánh nhau ở ngoài đồng mà không có ai ngăn cản, khiến một đứa chết. Người trong thị tộc tôi bắt tôi nộp đứa kia ra để họ giết. Họ muốn lấy đi miềm hy vọng còn lại duy nhất của tôi, khiến cho tên của chồng tôi bị xóa sổ mà không có người nối dõi."
 
 Vua David đáp: "Cứ về nhà đi, tôi sẽ giúp bà."
 

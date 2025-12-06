@@ -37,7 +37,7 @@ Người hầu đưa Tamar ra ngoài. Nàng đau khổ mà bốc tro bỏ lên �
 
 Anh trai ruột của nàng là Absalom trông thấy thì hỏi: "Có phải thằng Amnon đã làm nhục em không? Em hãy cứ ở tạm trong nhà anh một thời gian đã."
 
-Vậy Tamar ở lại trong nhà Absalom như một quả phụ. Vua David khi biết chuyện thì vô cùng giận dữ, còn Absalom thì ghét cay ghét đắng Amnon nhưng không nói ra.
+Vậy Tamar ở lại trong nhà Absalom như một góa phụ. Vua David khi biết chuyện thì vô cùng giận dữ, còn Absalom thì ghét cay ghét đắng Amnon nhưng không nói ra.
 
 ---
 
