@@ -51,7 +51,7 @@ Họ giật mình sợ hãi, vì tưởng đó là ma. Đức Jesus nói với h
 
 Họ mang đến cho Người một con cá nướng, thì Người ăn ngay trước mặt họ.
 
-Người nói với họ: "Thầy đã nói điều này khi ở với các con: Mọi điều các ngôn sứ viết về thầy phải được ứng nghiệm. Đấng Messiah phải chịu khổ hình, rồi ba ngày sau sẽ sống lại. Trong danh Người, sự ăn năn và tha tội sẽ được rao giảng cho mọi dân tộc, bắt đầu từ Jerusalem. Thầy sẽ mang đến điều Cha thầy đã hứa, hãy cứ ở trong thành cho đến khi được mặc lấy quyền năng từ trên cao."
+Người nói với họ: "Thầy đã nói điều này khi ở với các con: Mọi điều các ngôn sứ viết về thầy phải được ứng nghiệm. Đấng Messiah phải chịu khổ hình, rồi ba ngày sau sẽ sống lại. Trong danh Người, sự ăn năn và tha tội sẽ được rao giảng cho mọi dân tộc, bắt đầu từ Jerusalem. Thầy sẽ mang đến điều Cha thầy đã hứa, hãy cứ ở trong thành cho đến khi được mặc lấy quyền năng từ trên cao. Như John đã làm phép rửa bằng nước, các con sẽ được làm phép rửa bằng Thánh Linh."
 
 Nhưng Thomas không có mặt lúc đó, nên khi các môn đệ khác kể lại, thì ông không tin mà nói: "Nếu tôi không thấy dấu đinh trong tay thầy, và nếu tôi không xỏ ngón tay vào lỗ đinh, đặt bàn tay vào hông thầy, thì tôi sẽ không tin."
 
@@ -65,6 +65,8 @@ Thomas đáp: "Lạy Chúa con, lạy Thiên Chúa của con!"
 
 ---
 
-Đức Jesus cùng mười một môn đệ đi đến Galilee, tới miền phụ cận Bethany. Đức Jesus nói với họ: "Mọi quyền phép trên trời và dưới đất đều được ban cho thầy. Vậy hãy đi, làm cho muôn dân trở nên môn đồ thầy, làm phép rửa cho họ nhân danh Cha, Con, và Thánh Linh. Hãy dạy họ vâng giữ mọi điều thầy đã truyền cho các con. Và này thầy ở cùng các con luôn cho đến tận thế."
+Đức Jesus còn hiện ra với các môn đệ nhiều lần trong vòng bốn mươi ngày kể từ khi Người chịu khổ hình. Tới kỳ hạn, Đức Jesus cùng mười một môn đệ đi đến Galilee, tới miền phụ cận Bethany. Đức Jesus nói với họ: "Mọi quyền phép trên trời và dưới đất đều được ban cho thầy. Vậy hãy đi, làm cho muôn dân trở nên môn đồ thầy, làm phép rửa cho họ nhân danh Cha, Con, và Thánh Linh. Hãy dạy họ vâng giữ mọi điều thầy đã truyền cho các con. Và này thầy ở cùng các con luôn cho đến tận thế."
 
-Sau đó Đức Jesus lên trời. Các môn đệ thờ lạy Người và vui mừng trở về Jerusalem. Họ ở luôn trong Đền Thờ và ngợi khen Thiên Chúa.
+Sau đó Đức Jesus lên trời. Các môn đệ còn nhìn theo cho đến khi có đám mây che phủ Người. Bỗng có hai người mặc y phục trắng xuất hiện cạnh họ và nói: "Hỡi những người Galilee, sao các ông còn nhìn lên trời? Người đã đi rồi, và sẽ còn lại đến theo như cách các ông đã trông thấy."
+
+Các môn đệ thờ lạy Người và vui mừng trở về Jerusalem. Họ ở luôn trong Đền Thờ và ngợi khen Thiên Chúa.

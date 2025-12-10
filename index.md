@@ -3,7 +3,7 @@ layout: default
 ---
 
 <section>
-  <p class="text-gray-500 mb-6">Nội dung đang được cập nhật liên tục. Chọn một phần để bắt đầu đọc:</p>
+  <p class="text-gray-500 mb-6">Chọn một phần để bắt đầu đọc:</p>
 
   <div id="ktContinueReading" class="mb-6 p-3 bg-blue-50 hidden">
     Bạn đang đọc dở chương <b class="ktChapterName"></b>
