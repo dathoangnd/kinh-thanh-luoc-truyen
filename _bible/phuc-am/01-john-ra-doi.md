@@ -19,7 +19,7 @@ Thiên sứ đáp: "Ta là Gabriel. Ta đứng trước mặt Thiên Chúa, và 
 
 Trong lúc đó, những người bên ngoài đang đợi Zechariah và tự hỏi sao ông ở trong đó lâu như vậy. Khi ông đi ra, ông không thể nói chuyện với họ, chỉ có thể ra dấu. Họ nhận ra ông đã trông thấy một thị kiến nào đó trong Đền Thờ.
 
-Sau khi hết thời gian phụng sự, Zechariah trở về nhà. Sau đó bà Elizabeth vợ ông có thai và ở trong nhà giữ mình năm tháng. Bà nói: "Thiên Chúa đã làm điều này cho tôi. Ngài đã doái thương và cất đi nỗi hổ thẹn của tôi trước mặt mọi người."
+Sau khi hết thời gian phụng sự, Zechariah trở về nhà. Sau đó bà Elizabeth vợ ông có thai và ở trong nhà giữ mình năm tháng. Bà nói: "Thiên Chúa đã làm điều này cho tôi. Ngài đã đoái thương và cất đi nỗi hổ thẹn của tôi trước mặt mọi người."
 
 ---
 
