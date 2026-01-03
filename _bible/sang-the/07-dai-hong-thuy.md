@@ -11,7 +11,7 @@ Thiên Chúa phán rằng: "Thần khí Ta sẽ chẳng ở cùng loài người
 
 Thiên Chúa thấy sự hung ác của loài người trên mặt đất rất nhiều, và suy nghĩ của chúng ngày càng lầm lạc, thì hối tiếc đã dựng nên loài người. Thiên Chúa phán: "Ta sẽ hủy diệt khỏi mặt đất loài người mà Ta đã dựng nên, cùng các loài súc vật, bò sát, chim trời. Vì Ta tự trách đã dựng nên các loài đó."
 
-Noah là người sống công chính trước mặt Thiên Chúa nên Người muốn cứu ông. Thiên Chúa phán cùng Noah: "Ta sẽ hủy diệt tất cả loài người cùng mặt đất vì những tội lỗi của chúng. Ngươi hãy đóng một con tàu bằng gỗ bách, có các gian phòng và trát nhựa đường ngoài và trong. Tàu sẽ dài ba trăm thước, rộng năm mươi thước và cao ba mươi thước. Lợp mái cho tàu và chừa ra khoảng trống cao một thước. Hãy làm cửa bên hông tàu và đóng tầng dưới, tầng giữa và tầng trên. Ta sẽ cho nước lụt dâng lên để hủy diệt mọi sinh vật sống. Nhưng Ta sẽ lập giao ước với ngươi. Cả gia đình ngươi hãy vào tàu. Trong các loài vật thanh sạch, hãy đem theo mỗi loài bảy cặp, đực và cái. Còn loài vật không thanh sạch mỗi loài một cặp, đực và cái. Ngươi hãy đem theo chim trời, mỗi loài bảy cặp, trống và mái, để giữ giống cho chúng trên mặt đất. Ngươi cũng hãy đem theo thức ăn cho ngươi và cho chúng. Bảy ngày nữa, Ta sẽ làm mưa xuống trong bốn mươi ngày và bốn mươi đêm, để hủy diệt mọi loài Ta đã tạo."
+Noah là người sống công chính trước mặt Thiên Chúa nên Người muốn cứu ông. Thiên Chúa phán cùng Noah: "Ta sẽ hủy diệt tất cả loài người trên mặt đất vì những tội lỗi của chúng. Ngươi hãy đóng một con tàu bằng gỗ bách, có các gian phòng và trát nhựa đường ngoài và trong. Tàu sẽ dài ba trăm thước, rộng năm mươi thước và cao ba mươi thước. Lợp mái cho tàu và chừa ra khoảng trống cao một thước. Hãy làm cửa bên hông tàu và đóng tầng dưới, tầng giữa và tầng trên. Ta sẽ cho nước lụt dâng lên để hủy diệt mọi sinh vật sống. Nhưng Ta sẽ lập giao ước với ngươi. Cả gia đình ngươi hãy vào tàu. Trong các loài vật thanh sạch, hãy đem theo mỗi loài bảy cặp, đực và cái. Còn loài vật không thanh sạch mỗi loài một cặp, đực và cái. Ngươi hãy đem theo chim trời, mỗi loài bảy cặp, trống và mái, để giữ giống cho chúng trên mặt đất. Ngươi cũng hãy đem theo thức ăn cho ngươi và cho chúng. Bảy ngày nữa, Ta sẽ làm mưa xuống trong bốn mươi ngày và bốn mươi đêm, để hủy diệt mọi loài Ta đã tạo dựng."
 
 Noah làm theo mọi điều Thiên Chúa phán dạy. Khi ấy, ông đã sáu trăm tuổi.
 
@@ -19,6 +19,6 @@ Bảy ngày sau, vào ngày mười bảy tháng hai, các mạch nước ngầm
 
 Mưa đổ trên mặt đất bốn mươi ngày và bốn mươi đêm.
 
-Trong bốn mươi ngày, nước dâng tàu lên khỏi mặt đất. Con tàu nổi lềnh bềnh trên mặt nước. Tất cả ngọn núi lớn đều bị ngập trong nước hơn mười lăm thước. Tất cả các sinh vật trên mặt đất phải chết, chỉ trừ những người và loài vật theo Noah vào tàu.
+Trong bốn mươi ngày, nước dâng tàu lên khỏi mặt đất. Con tàu nổi lềnh bềnh trên mặt nước. Các ngọn núi lớn bị ngập trong nước hơn mười lăm thước. Tất cả các sinh vật trên mặt đất phải chết, chỉ trừ những người và loài vật theo Noah vào tàu.
 
 Nước ngập mặt đất suốt một trăm năm mươi ngày.

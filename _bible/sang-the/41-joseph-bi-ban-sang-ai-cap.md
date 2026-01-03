@@ -31,7 +31,7 @@ Vậy Joseph đi tìm và gặp được các anh tại Dothan. Nhưng khi thấ
 
 Họ nói với nhau: "Thằng nằm mộng đây rồi! Nào ta hãy giết nó rồi quăng xuống một hố nước. Ta sẽ nói là thú dữ đã ăn thịt nó. Xem các chiêm bao của nó sẽ ra sao."
 
-Ruben muốn cứu em nên nói: "Đừng giết nó. Cứ ném nó xuống cái hố nước này, nhưng đừng ra tay trên nó."
+Reuben muốn cứu em nên nói: "Đừng giết nó. Cứ ném nó xuống cái hố nước này, nhưng đừng ra tay trên nó."
 
 Khi Joseph đến, họ trói cậu lại bằng dây thừng và ném xuống hố. Cái hố đó cạn, không có nước trong đó.
 

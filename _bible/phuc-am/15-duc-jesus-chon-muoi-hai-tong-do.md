@@ -17,7 +17,7 @@ Thấy vậy, Peter quỳ xuống trước Đức Jesus và thưa: "Lạy Chúa,
 
 Đức Jesus đáp: "Đừng sợ, từ nay con sẽ đánh lưới người."
 
-Họ kéo thuyền lên bờ, rồi Peter cùng với anh em bạn hữu mình là Andrew, John, và James bỏ lại tất cả để theo Đức Jesus.
+Họ kéo thuyền lên bờ, rồi Peter cùng với em mình là Andrew bỏ lại tất cả để theo Đức Jesus.
 
 ---
 

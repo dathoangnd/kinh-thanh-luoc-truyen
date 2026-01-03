@@ -5,7 +5,7 @@ description: Thiên sứ báo tin cho vợ Manoah về đứa trẻ được th�
 
 Israel lại làm điều ác trước nhan Thiên Chúa, nên Người phó họ vào tay dân Philistine trong bốn mươi năm.
 
-Có một người đàn bà là vợ của Manoah người chi tộc Dan. Bà bị hiếm muộn nên không có con. Thên sứ của Thiên Chúa hiện đến với bà và nói: "Bà đang hiếm muộn, nhưng rồi đây bà sẽ có thai. Kể từ giờ bà hãy chú ý đừng uống rượu hay thức uống lên men, và đừng ăn đồ không thanh sạch. Bà sẽ sinh một con trai. Nó được dành riêng cho Thiên Chúa từ khi còn trong lòng mẹ, dao cạo sẽ chẳng đưa qua đầu nó. Nó sẽ dẫn dắt Israel khỏi tay người Philistine.
+Có một người đàn bà là vợ của Manoah người chi tộc Dan. Bà bị hiếm muộn nên không có con. Thiên sứ của Thiên Chúa hiện đến với bà và nói: "Bà đang hiếm muộn, nhưng rồi đây bà sẽ có thai. Kể từ giờ bà hãy chú ý đừng uống rượu hay thức uống lên men, và đừng ăn đồ không thanh sạch. Bà sẽ sinh một con trai. Nó được dành riêng cho Thiên Chúa từ khi còn trong lòng mẹ, dao cạo sẽ chẳng đưa qua đầu nó. Nó sẽ dẫn dắt Israel khỏi tay người Philistine.
 
 Người đàn bà nói với chồng: "Có một người đàn ông trông như thiên sứ của Thiên Chúa đến với tôi. Tôi không hỏi ông ấy đến từ đâu, và ông ấy cũng không cho tôi biết tên. Nhưng ông ấy nói tôi sẽ sinh một con trai, nó sẽ được dành riêng cho Thiên Chúa trong suốt cuộc đời."
 

@@ -59,4 +59,4 @@ Thiên sứ đáp: "Được thôi, ta nhận lời ngươi thêm lần nữa. T
 
 Lot chạy tới thành Zoar, thì mặt trời đã lên cao. Thiên Chúa làm mưa lửa từ trời xuống Sodom và Gomorrah. Ngài hủy diệt hai thành đó, cả vùng đồng bằng, mọi cư dân, cùng cây cỏ trong xứ. Nhưng vợ Lot ngoái lại nhìn, thì hóa ra một cột muối.
 
-Sáng sớm hôm sau Abraham ra nơi mình đã nói chuyện với Thiên Chúa. Ông nhìn về phía Sodom, Gomorrah và cả vùng đồng bằng, thì thấy khói dày đặc bay lên như một lò lửa lớn.
+Sáng sớm hôm sau Abraham đi ra nơi mình đã nói chuyện với Thiên Chúa. Ông nhìn về phía Sodom, Gomorrah và cả vùng đồng bằng, thì thấy khói dày đặc bay lên như một lò lửa lớn.

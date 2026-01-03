@@ -9,7 +9,7 @@ Trong các loài vật mà Thiên Chúa đã sáng tạo, rắn là loài xảo 
 
 Người nữ đáp: "Chúng tôi được ăn trái cây trong vườn, chỉ trừ trái của cây ở giữa vườn. Nếu đụng vào, chúng tôi sẽ phải chết."
 
-Con rắn nói: "Chẳng chết đâu. Nhưng nếu ăn vào, mắt các ngươi sẽ mở ra, và các ngươi sẽ biết điều thiện và điều ác giống như Thiên Chúa."
+Rắn nói: "Chẳng chết đâu. Nhưng nếu ăn vào, mắt các ngươi sẽ mở ra, và các ngươi sẽ biết điều thiện điều ác giống như Thiên Chúa."
 
 Người nữ thấy trái cây đẹp mắt, trông thì ngon và đem lại sự khôn ngoan nên hái ăn, rồi đưa cho chồng cùng ăn. Khi ấy mắt họ mở ra, họ thấy mình trần truồng, liền lấy lá cây vả che thân.
 
@@ -29,9 +29,9 @@ Người nữ đáp: "Con rắn đã lừa dối con, nên con đã ăn."
 
 Thiên Chúa phán với rắn: "Vì ngươi đã làm điều đó, nên ngươi sẽ bị rủa sả. Ngươi sẽ phải bò bằng bụng và ăn bụi đất. Sẽ có thù nghịch giữa dòng dõi ngươi và dòng dõi người nữ, con cháu nàng sẽ đạp đầu ngươi, còn ngươi sẽ cắn gót nó."
 
-Với người nữ, Thiên Chúa nói: "Ngươi sẽ chịu đau đớn khi sinh con. Ngươi sẽ ham muốn chồng, còn chồng sẽ cai trị ngươi."
+Với người nữ, Thiên Chúa phán: "Ngươi sẽ chịu đau đớn khi sinh con. Ngươi sẽ ham muốn chồng, còn chồng sẽ cai trị ngươi."
 
-Với Adam, Thiên Chúa nói: "Vì ngươi nghe lời vợ và ăn trái cấm, đất sẽ bị nguyền rủa. Đất đai sẽ sinh gai góc cho ngươi, và ngươi sẽ phải đổ mồ hôi mới có lương thực mà ăn. Ngươi được tạo ra từ bụi đất, và sẽ trở về với bụi đất."
+Với Adam, Thiên Chúa phán: "Vì ngươi nghe lời vợ và ăn trái cấm, đất sẽ bị nguyền rủa. Đất đai sẽ sinh gai góc cho ngươi, và ngươi sẽ phải đổ mồ hôi mới có lương thực mà ăn. Ngươi được tạo ra từ bụi đất, và sẽ trở về với bụi đất."
 
 Adam gọi vợ mình là Eve, bà là mẹ của nhân loại.
 

@@ -65,7 +65,7 @@ Nàng đáp: "Con muốn đi."
 
 Vậy họ tiễn Rebekah cùng người vú của nàng là bà Deborah đi cùng người đầy tớ của ông Abraham. Họ chúc phúc cho Rebekah: "Hỡi em, chúc em sinh vạn sinh ngàn, và cho dòng dõi em chiếm lấy thành trì quân địch."
 
-Rebekah và những người hầu lên lưng lạc đà và đi với người đầy tớ.
+Rebekah cùng những người hầu lên lưng lạc đà và đi với người đầy tớ.
 
 Bấy giờ, Isaac trở về Negev từ Beer Lahai Roi. Buổi chiều, cậu ra đồng suy ngẫm. Khi nhìn lên, cậu trông thấy lạc đà đang đi đến. Rebekah ngước lên trông thấy Isaac.
 

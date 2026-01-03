@@ -11,4 +11,4 @@ John thưa với Đức Jesus: "Chính tôi phải để ngài làm phép rửa,
 
 John vâng lời và làm phép rửa cho Đức Jesus.
 
-Vừa khi Đức Jesus ra khỏi nước, thì các tầng trời mở ra, Đấng Thánh Linh ngự trên Người như chim bồ câu. Bỗng có tiếng từ trời phán rằng: "Đây là Con yêu dấu của Ta, đẹp lòng Ta mọi đàng."
+Vừa khi Đức Jesus ra khỏi nước, thì các tầng trời mở ra, Đức Thánh Linh ngự trên Người như chim bồ câu. Bỗng có tiếng từ trời phán rằng: "Đây là Con yêu dấu của Ta, đẹp lòng Ta mọi đàng."

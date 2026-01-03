@@ -19,7 +19,7 @@ Vua Abimelek nói: "Ngươi làm gì chúng ta thế? Một người trong chún
 
 Vua Abimelek bèn ra lệnh cho mọi thần dân: "Ai hại người này hoặc vợ ông ta sẽ bị xử tử."
 
-Isaac gieo hạt trong xứ đó, và năm ấy gặt hái được gấp trăm lần, vì Thiên Chúa ban phước cho ông. Ông trở nên giàu có, và ngày càng thịnh vượng. Ông có nhiều bầy súc vật và đầy tớ khiến người Philistine phải ghen tị. Tất cả những cái giếng mà Abraham cha ông đã đào, thì người Philistine lấp đất hết lại.
+Isaac gieo hạt trong xứ đó, năm ấy gặt hái được gấp trăm lần, vì Thiên Chúa ban phước cho ông. Ông trở nên giàu có, và ngày càng thịnh vượng. Ông có nhiều bầy súc vật và đầy tớ khiến người Philistine phải ghen tị. Tất cả những cái giếng mà Abraham cha ông đã đào, thì người Philistine lấp đất hết lại.
 
 Vua Abimelek nói với ông: "Hãy đi khỏi đây, vì ngươi đã trở nên thịnh vượng hơn chúng ta."
 
@@ -29,7 +29,7 @@ Các đầy tớ của Isaac đào được một cái giếng nước ngọt tr
 
 Từ nơi đó ông đi lên Beersheba. Đêm đó Thiên Chúa hiện đến với ông và nói: "Ta là Thiên Chúa của Abraham cha ngươi. Đừng sợ, vì Ta ở với ngươi. Ta sẽ ban phước cho ngươi, và cho dòng dõi ngươi thêm nhiều, vì lời hứa với tôi tớ ta là Abraham."
 
-Isaac dựng một bàn thờ tại đó và kêu cầu danh Thiên Chúa. Ông cho dựng trại, và các đầy tớ đào được thêm một cái giếng tại đó.
+Isaac dựng một bàn thờ tại đó và kêu cầu danh Thiên Chúa. Ông cho dựng trại, các đầy tớ lại đào được thêm một cái giếng tại đó.
 
 Vua Abimelek tới thăm Isaac, đi cùng có quan cố vấn Ahuzzath và quan tổng binh Phicol. Isaac hỏi: "Các ông thù ghét và đuổi tôi đi, sao còn đến đây làm gì?"
 

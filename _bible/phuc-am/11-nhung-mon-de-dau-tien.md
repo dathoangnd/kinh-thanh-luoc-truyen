@@ -22,11 +22,11 @@ Hôm sau, Đức Jesus lên đường trở về Galilee. Ở thành Bethsaida q
 
 Philip đi tìm bạn mình là Nathanael và nói: "Tôi đã tìm thấy Đấng mà Moses đã nhắc tới trong sách luật, và các ngôn sứ cũng đã nói tới. Đó là ông Jesus thành Nazareth, con ông Joseph."
 
-Nathaniel hỏi: "Nazareth à? Ở đó thì có gì chứ?"
+Bartholomew hỏi: "Nazareth à? Ở đó thì có gì chứ?"
 
 Philip nói: "Anh cứ đến mà xem."
 
-Khi Đức Jesus trông thấy Nathaniel, Người nói: "Đây thật là người Israel không có chút gian dối."
+Khi Đức Jesus trông thấy Bartholomew, Người nói: "Đây thật là người Israel không có chút gian dối."
 
 Nathanael hỏi: "Sao thầy lại biết tôi?"
 

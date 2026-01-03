@@ -7,7 +7,7 @@ redirect_from:
 
 Các con trai của Noah đi cùng ông trên tàu là Japheth, Shem và Ham.
 
-Noah làm vườn và trồng nho. Ông uống rượu say và nằm trần truồng trong lều. Ham nhìn thấy và bảo hai anh mình. Nhưng Japheth và Shem lấy quần áo choàng lên vai, đi lùi lại để đắp cho cha. Họ nhìn đi hướng khác nên chẳng thấy cha họ trần truồng.
+Noah làm vườn và trồng nho. Ông uống rượu say rồi nằm trần truồng trong lều. Ham nhìn thấy và bảo hai anh mình. Nhưng Japheth và Shem lấy quần áo choàng lên vai, đi lùi lại để đắp cho cha. Họ nhìn đi hướng khác nên chẳng thấy cha họ trần truồng.
 
 Khi Noah tỉnh rượu, hay biết việc đứa con nhỏ nhất đã làm. Ông nguyền rủa Canaan, con của Ham: "Canaan đáng bị nguyền rủa, nó sẽ làm tôi tớ cho anh em nó."
 

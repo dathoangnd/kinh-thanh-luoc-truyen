@@ -5,7 +5,7 @@ description: Được dân Shechem ủng hộ, Abimelek giết anh em mình và 
 
 Abimelek, con trai vợ lẽ của Gideon ở Shechem nói với gia đình bên phía đàng mẹ: "Hãy hỏi những người Shechem, xem có muốn bị cai trị bởi bảy mươi người con trai của cha tôi không, hay là chỉ cai trị bởi một người. Nên nhớ chúng ta là anh em ruột thịt."
 
-Các anh em bên đàng mẹ của Abimelk nói lại với dân thành Shechem, thì họ ủng hộ Abimelek. Họ trao cho hắn bảy mươi shekel bạc lấy từ đền thờ thần Baal, và Abimelek dùng nó để tập hợp những tên côn đồ theo mình. Hắn dẫn quân tới nhà cha mình ở Ophrah, hạ sát bảy mươi anh em mình trên một tảng đá. Nhưng Jotham, con trai út của Gideon thì lẩn trốn nên thoát nạn.
+Các anh em bên đàng mẹ của Abimelek nói lại với dân thành Shechem, thì họ ủng hộ Abimelek. Họ trao cho hắn bảy mươi shekel bạc lấy từ đền thờ thần Baal, và Abimelek dùng nó để tập hợp những tên côn đồ theo mình. Hắn dẫn quân tới nhà cha mình ở Ophrah, hạ sát bảy mươi anh em mình trên một tảng đá. Nhưng Jotham, con trai út của Gideon thì lẩn trốn nên thoát nạn.
 
 Bấy giờ, dân thành Shechem và Beth Millo cùng tụ họp bên cây lớn gần cột đá tại Shechem, để tôn Abimelek lên làm vua.
 
@@ -15,7 +15,7 @@ Nói xong Jotham bỏ chạy, trốn đến Beer và sống tại đó vì sợ 
 
 ---
 
-Sau khi Abimelek đã cai trị Israel được ba năm, Thiên Chúa làm cho xung đột giữa vua và dân Shechem ngày càng lớn, họ nổi lên chống đối lại vua. Dân Shechem cắt đặt người nấp trên đỉnh đồi và cướp bóc bất cứ ai đi ngang qua. Tin này truyền đến tai Abimelek.
+Sau khi Abimelek đã cai trị Shechem được ba năm, Thiên Chúa làm cho xung đột giữa vua và dân Shechem ngày càng lớn, họ nổi lên chống đối lại vua. Dân Shechem cắt đặt người nấp trên đỉnh đồi và cướp bóc bất cứ ai đi ngang qua. Tin này truyền đến tai Abimelek.
 
 Sau mùa thu hoạch nho, dân Shechem tổ chức lễ hội trong đền thờ. Họ cùng ăn uống, và nguyền rủa Abimelek. Bấy giờ Gaal con trai Ebed, một người ngoại bang tới sống ở Shechem và được dân Shechem tin tưởng, nói rằng: "Abimelek là ai mà dân Shechem phải phục tùng? Chẳng phải hắn là con trai Gideon, còn Zebul phải làm phụ tá cho hắn sao? Nếu tôi là Zebul, tôi đã đuổi Abimelek đi rồi."
 

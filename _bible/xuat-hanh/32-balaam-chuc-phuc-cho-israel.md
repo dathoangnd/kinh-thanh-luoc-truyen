@@ -49,7 +49,7 @@ Balaam đã biết chắc ý muốn của Thiên Chúa, nên ông không đi th�
 
 Vua Balak nổi giận, đập tay mà nói: "Ta triệu ngươi đến để nguyền rủa quân thù, vậy mà ngươi lại chúc phúc cho chúng tới ba lần. Giờ ngươi hãy rời khỏi đây mà về đi! Ta đã nói sẽ ban thưởng cho ngươi, nhưng Thiên Chúa đã không cho ngươi được ban thưởng."
 
-Balaam đáp: "Tôi đã nói rằng dù ngài có cho tôi hết vàng bạc trong cung điện, tôi cũng chẳng thể tự mình nói ra, mà phải theo ý Thiên Chúa. Giờ tôi sẽ trở về, nhưng để tôi nói cho ngài biết những gì sẽ xảy ra sắp tới. Tôi là một tiên tri của Thiên Chúa tối cao và được trông thấy những thị kiến này. Tôi thấy một thủ lĩnh sinh ra từ nhà Jacob, vương trượng sẽ dựng lên từ Israel. Ngài sẽ đánh bại quân Moab, Sheth, Edom, Seir và tiêu diệt những ai sống sót."
+Balaam đáp: "Tôi đã nói rằng dù ngài có cho tôi hết vàng bạc trong cung điện, tôi cũng chẳng thể tự mình nói ra, mà phải theo ý Thiên Chúa. Giờ tôi sẽ trở về, nhưng để tôi nói cho ngài biết những gì sẽ xảy ra sắp tới. Tôi là một tiên tri của Thiên Chúa Tối Cao và được trông thấy những thị kiến này. Tôi thấy một thủ lĩnh sinh ra từ nhà Jacob, vương trượng sẽ dựng lên từ Israel. Ngài sẽ đánh bại quân Moab, Sheth, Edom, Seir và tiêu diệt những ai sống sót."
 
 Rồi ông lại nói tiên tri: "Dân Amalek đứng đầu các nước, nhưng sau cùng sẽ bị diệt vong. Nơi ở của dân Kenit vững chãi, nhưng sẽ bị quân Ashur bắt làm tù binh. Sau cùng, những tàu biển từ phía tây sẽ tới chinh phục Ashur và Eber, để rồi chính chúng cũng bị tiêu diệt."
 

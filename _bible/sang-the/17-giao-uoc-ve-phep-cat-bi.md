@@ -5,11 +5,11 @@ redirect_from:
   - /sang-the/17-giao-uoc-ve-phep-cat-bi/
 ---
 
-Khi Abram được chín mươi chín tuổi, Thiên Chúa hiện ra với ông và phán: "Ta là Thiên Chúa toàn năng. Ngươi hãy bước đi trước mặt Ta cách trung tín và trọn vẹn. Ta sẽ lập giao ước giữa ngươi và Ta, và cho dòng dõi ngươi nhiều vô kể."
+Khi Abram được chín mươi chín tuổi, Thiên Chúa hiện ra với ông và phán: "Ta là Thiên Chúa toàn năng. Ngươi hãy bước đi trước mặt Ta cách trung tín và trọn vẹn. Ta sẽ lập giao ước giữa Ta và ngươi, và cho dòng dõi ngươi ra nhiều vô kể."
 
 Abram sấp mình xuống đất.
 
-Thiên Chúa phán: "Đây là giao ước của Ta với ngươi: Ngươi sẽ trở thành cha của nhiều dân tộc. Ngươi sẽ không còn gọi là Abram nữa, nhưng là Abraham, nghĩa là cha của nhiều dân tộc. Ta sẽ cho dòng dõi ngươi nhiều, sinh ra nhiều dân tộc, các vua chúa sẽ từ ngươi mà ra. Đây là giao ước đời đời giữa Ta và ngươi, cùng con cháu ngươi, và Ta sẽ là Thiên Chúa của chúng. Ta sẽ ban vùng đất Canaan, nơi ngươi đang kiều ngụ, làm gia nghiệp đời đời cho chúng."
+Thiên Chúa phán: "Đây là giao ước của Ta với ngươi: Ngươi sẽ trở thành cha của nhiều dân tộc. Ngươi sẽ không còn gọi là Abram nữa, nhưng là Abraham, nghĩa là cha của nhiều dân tộc. Ta sẽ cho dòng dõi ngươi nên nhiều, sinh ra nhiều dân tộc, các vua chúa sẽ từ ngươi mà ra. Đây là giao ước đời đời giữa Ta và ngươi, cùng con cháu ngươi, và Ta sẽ là Thiên Chúa của chúng. Ta sẽ ban vùng đất Canaan, nơi ngươi đang kiều ngụ, làm gia nghiệp đời đời cho chúng."
 
 Thiên Chúa lại phán: "Phần ngươi, ngươi phải giữ giao ước Ta cho tới cả con cháu ngươi sau này. Tất cả đàn ông con trai trong nhà ngươi và các trẻ trai sinh ra được tám ngày phải chịu phép cắt bì, bất kể là người sinh ra trong nhà ngươi hay do ngươi dùng tiền mua về. Đây là dấu chỉ của giao ước Ta. Kẻ nào không chịu phép cắt bì sẽ bị đuổi khỏi bộ tộc ngươi, vì nó đã phá vỡ giao ước Ta."
 
